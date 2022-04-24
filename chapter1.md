@@ -9,6 +9,8 @@ part that was very good so all the Manemos in that land always would
 use it. Everyone would use it, but Matt. Because he had the power to
 become evil, he couldn't use it.
 
+<img width="782" alt="Screen Shot 2022-04-24 at 11 14 18 AM" src="https://user-images.githubusercontent.com/65838701/164990601-fd2873a0-43ff-44bf-9ff3-1c47f4c47c26.png">
+
 He met friends, friends that are not scared of him, friends that could
 forgive him, best friends forever. Then, when he got good friends, one
 friend said, "Where and how did you live when you were born?" asked a
