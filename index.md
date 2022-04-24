@@ -1,5 +1,11 @@
 Welcome to the first Manemo Webpage!
 
-Please read the [wiki](https://github.com/MattHatwey/MattHatwey.github.io/wiki) to learn the history of Manemo.
+👇Click on these links to see the story of Matt!👇
 
 [preface](preface.md)
+
+[chapter 1](chapter1.md)
+
+[chapter 2](chapter2.md)
+
+[chapter 3](chapter3.md)
