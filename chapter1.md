@@ -11,7 +11,7 @@ become evil, he couldn't use it.
 
 He met friends, friends that are not scared of him, friends that could
 forgive him, best friends forever. Then, when he got good friends, one
-friend said, "Where and how did you live when you were born?"  asked a
+friend said, "Where and how did you live when you were born?" asked a
 friend of his. "I don't know." Said Matt.
 
 "Maybe we could go ask the king to help search in the prophecy ball."
