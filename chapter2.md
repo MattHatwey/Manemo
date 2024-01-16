@@ -9,7 +9,7 @@ Until one day, a friend said, "Where did you live when you were born?” “I do
 “Maybe we could go ask Kingdarudo and Queendarudo to help search in the ancient scroll ”. Said one Manemo from nearby.
 “What scroll?” asked Matt, looking confused.
 “You don’t know?” Said all the Manemos that were around him.
-It was made on the day of the war.” They said.
+It was made on the day of the war." They said.
 
   That afternoon Matt went to the castle and said to Kingdarudo and Queendarudo; “Will you tell me about the prophercy that was made when I was born?'' asked Matt.
  “You were alone when you were born,” said Kingdarudo.
@@ -65,47 +65,45 @@ It was Old Kingdarudo and Old Queendarudo’s egg. They decided to name her Hatw
 "Who are you?" asked Sansei and Honest. "I'm Matt." "And I'm Hatwey!"
 
   Matt was 12 years old, Hatwey was 0 years old, Honest was 3 years old, and Sansei was 6 years old. 
-  The next day, they ventured to the old castle of Infinity when they saw a carriage with a Bad Manemo on it. Her name was Vomit.
+  The next day, they ventured to the old castle of Infinity when they saw a carriage with a bad Manemo on it, but nobody besides the bad Manemos know her name.
 
-                                                         CH.21 Odd and Even
+  The bad Manemo was welcomed by Odd, a fat and mean Bad Manemo, and Even, who was a slave.
+The castle ruins were very beautiful.
 
-  Vomit was welcomed by Odd, a fat and mean Bad Manemo, and Even, who was a slave.
-The castle ruins were very beautiful. Then, Odd said a very important thing.
-  “We are interested in making a robot army. We will make the first one. It’s name is N/O/N1394. 
-“Thank you, Odd. Even, please get some food for me.
+  “We are interested in making a robot army. We will make the first one. It’s name is N/O/N1394." said Odd
+“Make them right now. Even, get some food for me."
 “Yes.” said Even. 
-“I saw Manemos right now. Capture them.” said Vomit.
+“I saw Manemos right now. Capture them.” said the bad Manemo.
 “Run!” said Matt.
-                                                         CH.22 別れ
 
-　「マット？」サンセイの声が聞こえます。今どこ？
-「サンセイ！気をつけて。」マットが言いました。
-「え？？？あああああ！」サンセイが悲鳴をあげました。
-「だから言ったでしょ。」マットが言いました。
-マット達は、走っていたら、迷子になりました。マットは、一応悪いマニモの血もあるから、悪いマニモが近くにいると、悪いマニモになります。
-「マット？何してるの？」サンセイが聞きます。
-「捕まえられました。オッド。」マットはサンセイを無視して、オッドに向かって言いました。
+"...Matt?" "Where are you?" 
 
-                                                         CH.23 Matt and Sansei
+Matt could hear Sansei's voice. "Shh. Be careful." said Matt.
 
-  Sansei was locked up by Odd and Matt. She was sad that Matt betrayed her. She was very lonely until the next week.
-  “Sansei. I’m sorry. I’ll let you go. I’m a Bad Manemo. Just leave me here. I won’t hurt anybody if you keep me here. Just lock me up.” said Matt.
-“But you helped me.” said Sansei.
-“So what. I’m a Bad Manemo. Personality doesn't change whether you’re a Bad Manemo or good one. Lock me up already.”
-“But-”
-“No buts. Lock me up.”
-“Personality does change! Please Matt, I don't care if you’re a Bad Manemo or good Manemo!”
-“Okay, I’m sorry. Let’s escape before they find us.”
-“I’m ready!”
+"What did you sa- AAAA!" Sansei shouted.
+
+"I told you to be careful." said Matt.
+
+Matt and the others got seperated from each other while running away from the bad Manemos. Matt had a little bit of bad Manemo blood, and the bad Manemos made a machine that would make half-bad blood Manemos into bad Manemos. 
+
+"Matt, what are you doing-"
+
+"...I have captured the first target, Odd. Matt ignored Sansei and started walking towards the castle.
+                                      
+  Sansei was locked up by Odd and Matt. She felt betrayed by Matt. She was very lonely until the next week.
+  "Sansei. I’m sorry. I’ll let you go. I’m a Bad Manemo. Just leave me here. I won’t hurt anybody if you keep me here. Just lock me up." said Matt.
+"But you helped me." said Sansei.
+"So what. I’m a Bad Manemo. I have bad Manemo blood, and I become a bad Manemo when I'm near a bad Manemo. Lock me up already.”
+"But-"
+"No. Just lock me up."
+"Please Matt, I don't care if you become a bad Manemo near other bad Manemos! You always help me at the end!"
+"Okay, you make a very good point. Let’s escape before they find us."
+"Let's go."
   During that time, Honest and Hatwey were trying to think of a plan to meet up with Matt and Sansei.
-
-                                                         CH.24 Return of the Squad
 
   Hatwey and Honest were halfway there when Matt and Sansei came running towards them.
 “Okay! EVERYONE!!! WE’RE GOING TO MAKE PEACE!!!!”
-  All the Manemos heard Matt, and the good Manemos agreed to help restore peace. They thought that it would be a good rule for the prophecy.
-
-                                                         CH.25 Legendaria
+  All the Manemos heard Matt, and the good Manemos agreed to help restore peace. They thought that it would be a good rule for the ancient scroll.
 
   “Thank you everyone.” 
 Suddenly all the Manemos heard Legendaria’s voice, and it was.
@@ -120,8 +118,6 @@ Suddenly all the Manemos heard Legendaria’s voice, and it was.
 “Wait… Enchendaria??” said all the Manemos. 
 “Yes. said Enchendaria.
   Enchendaria was a legend back when Legendaria was born. When Legendaria met Legendarius, she also thought she saw Enchendaria. Enchendaria was the bird who watched Legendaria Disappear.
-
-                                                         CH.26 Snowflake, Peace, Firewing, and Mystic
 
   “Matt, can we talk? Also I would like to talk with your friends too.” said Pattern.
 “Okay!” said Matt, Sansei, Hatwey, and Honest.
@@ -141,85 +137,84 @@ Suddenly all the Manemos heard Legendaria’s voice, and it was.
 “Mystic.” said Pattern.
 “Me.” said Honest.
 
-                                                         CH.27 虹の塔
+After the war, there was a beautiful rainbow. Matt, Sansei, Hatwey, and Honest wanted to see where the rainbow started.
+"Is this a crystal?" asked Matt.
+There was a small crystal poking out of the ground.
+"Looks like a crystal to me!" said Sansei, Hatwey, and Honest.
+"Wha-"
+Suddenly, the crystal became bigger and bigger and became a tower, and was shining very brightly.
+Other Manemos came to see what was going on.
 
-　戦争が終わってから、虹が光っています。マット、サンセイ、ハットウィーとオネストは、虹がどこから来たのか、見ることにしました。
-「何これ。クリスタル？」とマットが言いました。
-地面に小さなクリスタルが突き刺さっていました。
-「そうみたいだね！」とサンセイ、ハットウィーとオネストが言いました。
-「あれ？」マットが言いました。
-「うわあー」とみんなが言いました。
-　他のマニモも来てます。
-　急に、地面に刺さっていたクリスタルが大きくなり、タワーの形になり、光っていました。
-
-                                                         CH.28 Mirror
-
-  The Crystal Tower was big enough to fit more than 100 Manemos. Suddenly, all the Manemos thought this tower was made because Matt, Sansei, Hatwey, and Honest made peace again. They were very happy that the war was over.
+  The Crystal Tower was big enough to fit more than 100 Manemos. All the Manemos thought this tower was made because of Matt, Sansei, Hatwey, and Honest. They were very happy that the war was over.
   “Let’s go inside. It’s probably our castle.” said Matt.
 “Yeah!” said Sansei, Hatwey, and Honest.
 The castle already had all of the interior in place.
-10 pots, 3 carpets, 12 rooms, a dining room, a living room, 2 bathrooms, 2 kitchens, and a mirror.
+10 pots, 20 carpets, 30 rooms, 2 dining rooms, 3 living rooms, 4 bathrooms, 3 kitchens, and a mirror.
+
   But this mirror wasn’t just a mirror. It was shining and looked magical.
-
-                                                         CH.29 The Magic of Manemos
-
+  
 Manemos have never used magic. Only Legendaria could, but after she disappeared she could not use magic. The Manemos thought magic was only for Legendaria, and now that she doesn’t have magic, they thought that the Bad Manemos must have stolen it.
   Matt felt as though he could feel magic inside of the castle. He felt like he had magic in him.
 He knew magic still existed. Not only the Bad Manemos, but good Manemos too. 
 
-                                                         CH.30 Manemo Land
-
   Uranus never had a name. Until this point, it was called the land of the Manemos. 
   Matt knew this was land for good Manemos, so he needed to think of a name for each area so Manemos could tell the difference between Bad Manemo territory, and good Manemo territory. 
-  Matt decided to name the good Manemos’ land to Solitude Nation, and the Bad Manemos’ land to Badland Territory.
+  Matt decided to name the good Manemos’ land to Manemo Mainlands, and the Bad Manemos’ land to Badland Territory.
 
-                                                         CH.31 Magical Adventure
+For now, there were only two territories.
 
   Matt, Sansei, Honest, and Hatwey had been living in the Crystal Tower for 2 years.
 Matt was 15, Sansei was 8, Hatwey was 2, and Honest was 5 years old.
   They wanted to explore Manemo Land, so they decided to.
 
-                                                         CH.32 チョコちゃんとイチゴちゃん
+Matt, Sansei, Hatwey, Honest have been adventuring for an hour now.
 
-　マット達が冒険を始めた１時間後には、誰もいませんでした。
-「もう暗いし、寝よう。」マットが言いました。
-「うん。」サンセイ、オネストとハットウィーが言いました。
-「チョコ？どこ行ったのかな？」と声が聞こえました。
-「ここだよ、イチゴ！」また声が聞こえました。
-「誰？」サンセイはびっくりして、飛び上がりました。
-「チョコー。誰かがいるよ〜〜〜！」声がまたきこえました。
-　マット、オネストとハットウィーも起き上がりました。
-「私はチョコです。この子はイチゴ。迷子になったの。助けてくれる？」
-「チョコちゃんとイチゴちゃんはどこから来たの？」マットが聞きました。
-「チョコ？」ハットウィーが言いました。
-「ハットウィー？」チョコちゃんが言いました。
-「イチゴ？？？」サンセイが言いました。
-「誰？もしかして、レイラの兄弟？？？似てる。」イチゴちゃんが言いました。
-「レイラ知ってるの？」サンセイが言いました。
-　その時、急に、サンセイが昔のことを思い出しました。
-「ちょっと待って。」と言って、サンセイは1分黙っていました。
-その間、他のみんなも黙っていました。
-                                                         CH.33 知合
+"It's getting dark now, let's go to sleep." said Matt.
+"Yeah." said the others.
 
-　「やっぱり」とサンセイが言いました。
-「うん。」とイチゴちゃんが言いました。
-　「マットってパターンの子供？」とサンセイが聞きました。
-「うん。」とマットが答えました。
-「アラベールっていう名前のマニモ知ってる？」とサンセイが聞きました。
-「うん、知ってるよ。パターンの友達。」とマットが言いました。
-「アラベールって知ってる。」イチゴちゃんも言いました。
-「レイラのまま。」サンセイが言いました。
-「一生とレイラとサンセイのまま。」イチゴちゃんが言いました。
-「イチゴおばさんは？」イチゴちゃんが聞きました。
-「知ってる。ままの九星の友達。」とサンセイが答えました。
-　サンセイとイチゴちゃんは30分も話していました。
-　「ハットウィー。」チョコちゃんがまた言いました。
-「チョコ。」ハットウィーが言いました。
-「君達も兄弟？」サンセイ、マット、オネストとイチゴちゃんが聞きました。
-「うん。」とハットウィーとチョコちゃんが答えました。
-　「ハットウィーって、キングダルドとクイーンダルドの前にマニモランドをコントロールしてたマニモの子供だよね。」マットが言いました。
+"...Choco, where did you go??" 
 
-                                                         CH.34 The Grassland Region’s Manemo 
+Suddenly, Matt and the others heard a voice.
+
+"...I'm right here Ichigo!" 
+
+Sansei got surprised, and jumped.
+
+"...Choco. There's somebody here!"
+
+Matt decided to ask who they were.
+
+"I'm Choco! and she's Ichigo!" said Choco.
+"We are lost." said Ichigo.
+
+"Wait, CHOCO???" said Hatwey.
+"Are you...ARE YOU HATWEY???" said Choco.
+"Ichigo..." said Sansei.'
+"Who are you- wait, are you Leila's little sister of something? You look similar to her." said Ichigo.
+"You know Leila?" said Sansei.
+"Wait..." Everyone started thinking.
+
+"I knew it." said Sansei.
+"Yes." said Ichigo.
+"Matt, do you know Arabelle?" asked Sansei.
+"Yeah, Pattern told me about her 2 years ago."
+"I know Arabelle." said Ichigo.
+"Leila's Mom, and my Mom." said Sansei.
+"Issei and Leila and Sansei's Mom." said Ichigo.
+"Yes." said Sansei.
+"How about Ichigo Obasan (Obasan = Aunt)"? asked Ichigo.
+"I used to eat her strawberries." said Sansei.
+"Me too! They tasted so good." said Ichigo.
+"I can still remember the taste of the strawberries." said Sansei.
+This conversation went on for 2 hours, and everyone else started talking too.
+
+"We are siblings!" said Hatwey and Choco.
+"If you two are Old Kingdarudo and Old Queendarudo's kids..." said Matt.
+"And if Kingdarudo and Queendarudo are cousins of the Old Kingdarudo and Old Queendarudo, that means..."
+"...Kingdarudo and Queendarudo's kid was the voice that made an egg with Pattern..."
+"That means..."
+
+Matt was thinking for so long that even Sansei and Ichigo's conversation ended.
 
   “It’s so comfortable here.” said Matt.
 “It’s just grass here.” said Sansei.
@@ -229,8 +224,6 @@ Matt was 15, Sansei was 8, Hatwey was 2, and Honest was 5 years old.
 “Who are you?” said the Manemo.
 “I’m Matt, this is Sansei, Honest, and Hatwey.
 “I’m Rainflower. I was born here. I’m 6 years old.” said Rainflower.
-
-                                                         CH.35 Journey to Crystal Tower
 
   Matt, Sansei, Honest, and Hatwey had been adventuring for 1 month.
 “We should go back to Crystal Tower. It’s been a long time since we were there and I think it’ll take more than a week to get back home.” said Sansei and Hatwey.
@@ -247,13 +240,11 @@ Matt was 15, Sansei was 8, Hatwey was 2, and Honest was 5 years old.
 “Yes.” said Rainflower.
 “Let’s eat!” said Honest and Choco.
 “Yeah!” said the others.
-“After we eat, we should start on our journey back home. It’s almost dark, but I think traveling during the night is easier. We probably won’t see any Bad Manemos.” said Matt.
-“Yeah. I don’t want to meet any Bad Manemo on the way back.” said Ichigo.
+“After we eat, we should start on our journey back home. It’s almost dark, but I think traveling during the night is easier. We probably won’t see any bad Manemos.” said Matt.
+“Yeah. I don’t want to meet any bad Manemos on the way back.” said Ichigo.
   Once they finished eating and started their journey, it was very dark and cold.
 
-                                                         CH.36 Arrival
-
-  As the sun started to rise, Matt, Sansei, Hatwey, Honest, Ichigo, Choco, and Rainflower saw the Solitude Nation.
+  As the sun started to rise on the seventh day, Matt, Sansei, Hatwey, Honest, Ichigo, Choco, and Rainflower saw the Manemo Mainlands.
   “Matt!!!” said one Manemo.
 “Who are the other Manemos?” asked another Manemo.
 “I’m Rainflower.” 
@@ -266,26 +257,28 @@ Matt was 15, Sansei was 8, Hatwey was 2, and Honest was 5 years old.
 “Yeah. The one who said “Matt!!!” Earlier.” said Honest.
 “That’s me.” said the Manemo.
 “My name is Sayo.” said the Manemo.
-“And I’m Lightning Star! The one who asked “Who are the other Manemos!” After Sayo!” said the other Manemo.
+“And I’m Lightning Star! The one who asked 'Who are the other Manemos?' After Sayo!” said the other Manemo.
 
-                                                         CH.37 F.S と類
+While Matt and the others were returning to Crystal Tower, they heard a Manemo and two other creatures.
 
-　マット達が、クリスタルタワーに戻ろうとしたら、マニモの話し声が聞こえました。
-「私、まだマット達に挨拶してないんだー。君は？」と聞こえました。
-「僕もまだしてない。」とまた聞こえました。
-「二人とも、僕はここにいるよ！」マットが二人に話しかけました。
-「え？」二人が言いました。
-「僕に挨拶がしたかったの？」マットが聞きました。
-「マット達って言ったじゃん。」サンセイが急に言いました。
-「ごめんごめん。」マットが言いました。
-「僕は類。」
-「私はF.S。」
-「そうなんだー。よろしくね！」マットが言いました。
-「この子好き。」レインフラワーがF.Sを指で刺しながら言いました。
-「ありがとう！」F.Sが答えました。
-「この子達すごく可愛い。」マットが言いました。
+"...I haven't met Matt yet." 
 
-                                                         CH.38 New Generation
+"...Me neither."
+
+"... Me too."
+
+"I'm right here!" said Matt.
+
+"...Are you the real Matt!?" said the Manemo, and the two cats.
+
+"You wanted to greet me?" asked Matt.
+
+"Yes!" said the two Manemos.
+"I am Rui" "I am Dominic." "I'm Fantastic Sakura (F.S.)!"
+
+"Nice to meet you three!" said Matt.
+"I like her." said Rainflower, pointing at F.S.
+"I like the two cats." said Sansei and Matt.
 
   Matt, Sansei, Honest, Hatwey, Ichigo, Choco, and Rainflower all lived in the Crystal Tower until one day.
 “Matt, you will be our Emperor.” said Kingdarudo.
@@ -297,11 +290,20 @@ Matt was 15, Sansei was 8, Hatwey was 2, and Honest was 5 years old.
 “I’m Wisteria.” said one.
 “I’m Earon.” said another.
 “And Wisteria and Earon will live in the Tower of Two Sisters.” said Kingdarudo and Queendarudo.
-  “How about me?” said a voice.
-There was a prince, a very small prince. He had a crown and cape, and there was a baby Manemo next to him.
+
+"...Hello...?" 
+
+"Are you-..." said Matt.
+"It has been a while since i've met you." said Pattern.
   “Prince?” said Kingdarudo.
 “Are you the real Prince?” said Queendarudo.
 “Yes. I have been living in the Ancient Forest.” said the Prince.
 “Would you like to live here?” said Queendarudo.
 “Yes.” said the Prince. 
 “Then you can also live in the Crystal Tower.” said Kingdarudo.
+
+"If the Prince is Kingdarudo and Queendarudo's kid, and I am his and Pattern's kid, I am Kingdarudo and Queendarudo's grandchild???" said Matt.
+
+"Honest...? is that you?" said the Prince.
+"Good to see you!" said Honest.
+"Good to see you too." said the Prince.
