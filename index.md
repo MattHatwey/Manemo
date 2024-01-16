@@ -1,6 +1,6 @@
 ☮️🔥❄️✡️ Welcome to the first Manemo Webpage! ☮️🔥❄️✡️
 
-↓ Click on t☟hese links to see the story of Manemo! ↓
+↓ Click on these links to see the story of Manemo! ↓
 
 [⚚ PREFACE ⚚](preface.md)
 
