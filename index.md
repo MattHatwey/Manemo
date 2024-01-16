@@ -1,13 +1,13 @@
-☮️🔥❄️Welcome to the first Manemo Webpage!☮️🔥❄️
+☮️🔥❄️✡️ Welcome to the first Manemo Webpage! ☮️🔥❄️✡️
 
-👇Click on these links to see the story of Manemo!👇
+↓ Click on t☟hese links to see the story of Manemo! ↓
 
-[preface](preface.md)
+[⚚PREFACE⚚](preface.md)
 
-[part 1](chapter1.md)
+[♅CH 1♅](chapter1.md)
 
-[part 2](chapter2.md)
+[❄✡CH 2✡☼](chapter2.md)
 
-[part 3](chapter3.md)
+[CH 3](chapter3.md)
 
 More stories about Manemo coming soon!
