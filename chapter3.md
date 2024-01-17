@@ -1,32 +1,29 @@
-The manemo had been born, he felt sad, but when he looked at the
-manemo, he felt happy.
+"...Where do you want to live?" said Matt.
 
-First Matt asked his old friends to help, they wanted to but their
-boss said "no!" to them, and they did help.
+"...I would like to go to Neptune." said Rainflower.
 
-Bad Manemo King Infinity and Queen Infinity were good Manemos, but
-there were none the first time when good Manemos did not like Hatwey's
-cousin's parents and made them into bad Manemos.
+"...Why?"
 
-They killed a lot of good Manemos and somehow turned them into bad
-manemos. The battle bird said "Battle!" while looking at the battle.
+"...I like it here, but I love animals and nature."
 
-Matt used his powers, then Hatwey was surprised, but scared. She hid
-in the bush and Honest was too, but he hid more deep inside the bush.
-Bad manemos, the number of bad manemos got bigger than ever, so large
-that only a few good manemos were there to help, when a B.A.D member
-broke the diamond.
+"...This place has nature too-"
 
-Matt came rushing to the door (the security code) to see the diamond
-broken. Hatwey and Honest came running to the diamond too. "No! The
-diamond!" Said Hatwey, crying with Honest. "I know how to fix it!"
-Said Matt. "Really?" said Honest. "Yes" said Matt.
+"...Good morning..." said Sansei.
+"You're finally awake!" said Matt.
+"What do you mean? It's 6:00AM right now." said Sansei.
+"I want to ask you a question." said Rainflower.
 
-Matt made the diamond again but he suddenly evolved into a mega
-diamond. Hatwey and Honest's diamonds were glowing. Manemos were
-popping out of the Bad Manemos.
+"I think you should go where you want to live." said Sansei. "But why do you want to live on Neptune?" said Matt and Sansei.
 
-Then the old good Manemos were able to be with their children. "Mom!"
-said Matt. "Matt" said Page Pattern (as known as the mother of Matt).
-"Mom, Dad?" said Hatwey. "Hatwey" said The old king and old queen (as
-known as Hatwey's parents).
+"I want to restore Neptune to what it used to be." said Rainflower.
+"The atmosphere became toxic, so how would you restore it?" asked Matt.
+"Please come with me so we could restore Neptune!" said Rainflower.
+"But how do we restore it?" said Matt.
+
+At this point, everyone who lived in the crystal tower had come to see what was going on.
+
+"We all don't know how to use magic." said Matt. Everyone was nodding.
+"Let's try to learn how to use magic!" said Rainflower.
+"That's a great idea!" said everyone.
+
+Everyone decided to go back to the Grassland Region again to learn how to use magic without harming any other Manemos who lived in the village.
