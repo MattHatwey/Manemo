@@ -56,5 +56,20 @@ It was getting dark, so everyone wanted to go home.
 Matt saw bad Manemos in the corner of his eye.
 
 "...Shh. They're coming." said Matt.
+
 "Thought you could hide from us?" said Odd.
-"We brought something special that could find you in seconds. Let me introduce you to N/O/N
+"We brought something special that could find you in seconds. Let me introduce you to N/O/N1394 and the other robot Manemos." said Odd.
+"You all were doing magic class? Well I'm just going to take all that magic!!!" said all the robots.
+
+Matt and the others could not feel anything though.
+
+"WHY IS THERE NO MAGIC COMING OUT???" said Odd, getting angrier and angrier.
+"Maybe it is because they do not have any magic." said N/O/N1394.
+"Get ready to go back to prison!" said Odd.
+
+Matt was trying to cut the rope that the robots tied them onto.
+
+"WHAT ARE YOU DOING?" said Odd, as he pressed a button on N/O/N1394.
+Suddenly, so many robots were summoned that Matt couldn't even count how many there were.
+All the robots were pointing lazers at Matt and the others.
+"I'm sorry Sansei, Hatwey, Honest, Rainflower, Ichigo, Choco.
