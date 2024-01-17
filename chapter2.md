@@ -88,7 +88,7 @@ Matt and the others got seperated from each other while running away from the ba
 
 "Matt, what are you doing-"
 
-"...I have captured the first target, Odd. Matt ignored Sansei and started walking towards the castle.
+"...I have captured the first target, Odd." Matt ignored Sansei and started walking towards the castle.
                                       
   Sansei was locked up by Odd and Matt. She felt betrayed by Matt. She was very lonely until the next week.
   "Sansei. I’m sorry. I’ll let you go. I’m a Bad Manemo. Just leave me here. I won’t hurt anybody if you keep me here. Just lock me up." said Matt.
