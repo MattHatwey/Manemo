@@ -26,7 +26,7 @@ At this point, everyone who lived in the crystal tower had come to see what was 
 "Let's try to learn how to use magic!" said Rainflower.
 "That's a great idea!" said everyone.
 
-Everyone decided to go back to the Grassland Region again to learn how to use magic without harming any other Manemos who lived in the village.
+Everyone besides the prince decided to go back to the Grassland Region again to learn how to use magic without harming any other Manemos who lived in the village.
 
 "Who would like to go first?" asked Sansei.
 "How about oldest first and youngest last?" said Matt.
@@ -72,4 +72,25 @@ Matt was trying to cut the rope that the robots tied them onto.
 "WHAT ARE YOU DOING?" said Odd, as he pressed a button on N/O/N1394.
 Suddenly, so many robots were summoned that Matt couldn't even count how many there were.
 All the robots were pointing lazers at Matt and the others.
-"I'm sorry Sansei, Hatwey, Honest, Rainflower, Ichigo, Choco.
+"I'm sorry Sansei, Hatwey, Honest, Rainflower, Ichigo, Choco, Earon, Wisteria." said Matt, crying.
+Everyone else was also crying.
+
+"GET READY TO FIGHT!" said Odd.
+
+Matt closed his eyes. So did the others.
+
+Matt suddenly heard a voice that nobody else could hear.
+
+"...Matt, use your magic, you have magic still inside of you... Snowflake..."
+
+"We can do this." said Matt.
+"Can we really...?" said the others.
+"Yes we can!!!" said Matt.
+Matt started floating in the air, and grew wings. So did the others.
+
+The sky turned dark, and a blizzard had begun. Then, half of the robots were turned to rocks. The robots were all shot by strawberry seeds, and a gust of wind started blowing around N/O/N1394. The other half of the robots were surrounded by wisteria and could not escape. After that, a large fire started, and some dark chocolate was melting, and it became so hot that the chocolate burned some of the robots surrounded by wisteria. Suddenly the grass that was burnt started growing into poison ivy, which made Odd itchy all over, and finally, a magic spell was cast into the grounds, and all of the robots and N/O/N1394 blew up in the sky like fireworks.
+
+"Wait, HOW?" said Odd.
+
+Everyone ignored Odd and walked away.
+Odd ran away into the dark.
