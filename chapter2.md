@@ -43,7 +43,7 @@ One Manemo was holding the egg.
   The King and Queen of the Bad Manemos used to be good Manemos until they were knocked into a volcano by good Manemos. The good Manemos didn’t like the King and Queen and accidentally made them into Bad Manemos. The King and Queen were Hatwey’s mother and father, also known as Old Kingdarudo and Old Queendarudo.
   They killed a lot of good Manemos and somehow turned them into bad manemos.
 
-  Matt used his powers, and the two manemos were surprised and scared.
+  Matt tried to stop the bad Manemos, and the two manemos were scared.
 The two little Manemos hid deeper inside the bush.
 
   The number of bad manemos got bigger than ever, so large that only a few good manemos were there to help, when a B.A.D member broke the diamond.
