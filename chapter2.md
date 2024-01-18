@@ -94,3 +94,63 @@ The sky turned dark, and a blizzard had begun. Then, half of the robots were tur
 
 Everyone ignored Odd and walked away.
 Odd ran away into the dark.
+
+"WE DID IT!!!" said everyone.
+"Did you see me?" said Matt.
+"Yeah! That blizzard was pretty cool!" said Honest.
+"Your firework show was cool too!" said Matt.
+"Look at me!" said Wisteria.
+"Me too!!!" said everyone.
+
+Everyone was having a good time.
+
+"We should go back now. It's already dark now." said Matt.
+"Oh no. I forgot to bring the lamp." said Sansei.
+"Did anyone else bring a lamp?" asked Earon.
+"No." said everyone.
+"Wait, I have an idea!" said Hatwey.
+Honest made a replica of a stick, and Hatwey added an ember to the stick.
+"Look!" said Hatwey.
+"Amazing!" said Ichigo and Choco.
+"Wow" said Rainflower.
+
+That night, everyone slept very well.
+
+"Good morning!" said Matt. "Matt, don't talk while eating your toast!" said Sansei. "Sansei, I want toast too!!!" said Hatwey. "Me too!" said Honest. "How about us?" said the others.
+
+Everyone in town was talking about last night's adventure because Hatwey told the story in the morning to the prince, and the prince told it to Kingdarudo and Queendarudo, which told it to everyone in town.
+
+"Let's try to learn other magic!" said Matt. "It's not fun if we don't attack somebody!" said everyone. "That's a good point!" said Matt. "Let's do this!" said everyone, including Matt.
+
+"Have fun! See you later! I hope you can learn magic! Are there going to be more bad Manemos?" said all the people who lived in the town. Prince was also waving.
+
+"Who wants to go first?" said Matt.
+"What if we split into different groups?" said Earon.
+"Okay!" said the others.
+
+The teams were team Matt and Sansei, team Hatwey, Honest, Rainflower, team Ichigo and Choco, team Wisteria and Earon.
+"Okay, now that we've split into groups, let's split up into different areas of the grassland region! And three hours later, come back to this spot. Rainflower made a patch of sunflowers right here." said Matt.
+Everyone did as they were told.
+
+"Is everyone here?" asked Matt.
+"Yes!" said everyone.
+"Did anyone learn something new?" said Matt.
+"Yeah!" said everyone.
+"From oldest to youngest." said Matt.
+"Me first!" said Matt.
+
+"I learned freeze and icicle. Icicle summons icicles that are as pointy as a spear, and drops them on enimies! and freeze just freezes the opponent." said Matt.
+
+"I learned peace and statue. We can use peace when there is a fight between two people, but we don't want to attack them. Statue turns a Manemo into stone, but heals them inside of the stone. They can get out whenever they want." said Sansei.
+
+"I learned ashes and lava. Ashes makes it so that the enemies can only smell ashes, and because they are scared of fire and everything else in the world, they run away from where they can smell the ashes. Lava summons a miny volcano that you can put on anything and it will blow up whenever it detects an enemy." said Hatwey.
+
+"I learned mimic and repair. Mimic can mimic any spell of magic, but the attack is lowered by 50%. Repair can repair your items such as my wand, but you can't use them while you repair them." said Honest.
+
+This conversation went on for 4 hours, and I don't want you to get bored of this story so I will cut it out.
+"I'm so hungry. What time is i- ALREADY 2PM??? said Hatwey.
+"How?!" said everyone.
+"Well, then we should go back home now." said Matt.
+"Okay!" said everyone.
+
+Luckily, Matt and the others did not meet any bad Manemos on the way back either.
