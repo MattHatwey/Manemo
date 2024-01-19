@@ -170,3 +170,25 @@ Luckily, Matt and the others did not meet any bad Manemos on the way back either
 "Hello!" said Sansei.
 "Please come the crystal tower. There is a strange thing going on." said the prince.
 "Okay." said Matt and the others.
+
+"...What is it?" said Matt and the others.
+"It's the mirror." said the prince.
+"It looks like there is another dimetion inside of the mirror." said Matt.
+"But nobody can get inside of it." said the prince.
+
+"Let me try!" said Hatwey.
+
+But it did not work.
+"Really?" said Matt.
+He tried putting his hand inside of the mirror, and then Matt suddenly disappeared.
+
+"...Where is this?" said Matt.
+He looked around but he saw nothing.
+Until suddenly, he saw something.
+It was a circle, floating like a bubble.
+"...What is that? Is it a memory?" said Matt.
+Then he saw a picture inside of the bubble.
+It was a picture of a Manemo.
+Matt decided to try to look closer, and he touched it.
+"...What is going on-" said Matt.
+
