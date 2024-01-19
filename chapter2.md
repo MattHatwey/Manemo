@@ -69,7 +69,7 @@ Matt and the others could not feel anything though.
 
 Matt was trying to cut the rope that the robots tied them onto.
 
-"WHAT ARE YOU DOING?" said Odd, as he pressed a button on N/O/N1394.
+"WHAT ARE YOU DOING?" said Odd. Odd pressed a button on N/O/N1394.
 Suddenly, so many robots were summoned that Matt couldn't even count how many there were.
 All the robots were pointing lazers at Matt and the others.
 "I'm sorry Sansei, Hatwey, Honest, Rainflower, Ichigo, Choco, Earon, Wisteria." said Matt, crying.
@@ -88,7 +88,7 @@ Matt suddenly heard a voice that nobody else could hear.
 "Yes we can!!!" said Matt.
 Matt started floating in the air, and grew wings. So did the others.
 
-The sky turned dark, and a blizzard had begun. Then, half of the robots were turned to rocks. The robots were all shot by strawberry seeds, and a gust of wind started blowing around N/O/N1394. The other half of the robots were surrounded by wisteria and could not escape. After that, a large fire started, and some dark chocolate was melting, and it became so hot that the chocolate burned some of the robots surrounded by wisteria. Suddenly the grass that was burnt started growing into poison ivy, which made Odd itchy all over, and finally, a magic spell was cast into the grounds, and all of the robots and N/O/N1394 blew up in the sky like fireworks.
+The sky turned dark, and a blizzard had begun. Then, half of the robots were turned to rocks. The robots were all shot by strawberry seeds, and a gust of wind started blowing around N/O/N1394. The other half of the robots were surrounded by wisteria and could not escape. After that, a large fire started, and some dark chocolate was melting, and it became so hot that the chocolate burned some of the robots surrounded by wisteria. Suddenly the grass that was burnt started growing into poison ivy, which made Odd itch all over, and finally, a magic spell was cast into the grounds, and all of the robots and N/O/N1394 blew up in the sky like fireworks.
 
 "Wait, HOW?" said Odd.
 
@@ -120,7 +120,7 @@ That night, everyone slept very well.
 
 Everyone in town was talking about last night's adventure because Hatwey told the story in the morning to the prince, and the prince told it to Kingdarudo and Queendarudo, which told it to everyone in town.
 
-"Let's try to learn other magic!" said Matt. "It's not fun if we don't attack somebody!" said everyone. "That's a good point!" said Matt. "Let's do this!" said everyone, including Matt.
+"Let's try to learn other magic!" said Matt. "Okay!" said everyone. "Let's do this!" said everyone, including Matt.
 
 "Have fun! See you later! I hope you can learn magic! Are there going to be more bad Manemos?" said all the people who lived in the town. Prince was also waving.
 
@@ -137,17 +137,19 @@ Everyone did as they were told.
 "Did anyone learn something new?" said Matt.
 "Yeah!" said everyone.
 "From oldest to youngest." said Matt.
+"Okay!" said everyone.
 "Me first!" said Matt.
 
-"I learned freeze and icicle. Icicle summons icicles that are as pointy as a spear, and drops them on enimies! and freeze just freezes the opponent." said Matt.
+"I learned freeze and icicle. Icicle summons icicles that are as pointy as a spear, and drops them on enimies! And freeze just freezes the opponent." said Matt.
 
-"I learned peace and statue. We can use peace when there is a fight between two people, but we don't want to attack them. Statue turns a Manemo into stone, but heals them inside of the stone. They can get out whenever they want." said Sansei.
+"I learned peace and statue. We can use peace when there is a fight between Manemos, but we don't want to attack them. Statue turns a Manemo into stone, but heals them inside of the stone. They can get out whenever they want." said Sansei.
 
 "I learned ashes and lava. Ashes makes it so that the enemies can only smell ashes, and because they are scared of fire and everything else in the world, they run away from where they can smell the ashes. Lava summons a miny volcano that you can put on anything and it will blow up whenever it detects an enemy." said Hatwey.
 
 "I learned mimic and repair. Mimic can mimic any spell of magic, but the attack is lowered by 50%. Repair can repair your items such as my wand, but you can't use them while you repair them." said Honest.
 
-This conversation went on for 4 hours, and I don't want you to get bored of this story so I will cut it out.
+This conversation went on for 4 hours, and I don't want you to get bored of this story and I don't want to write all of this so I will cut it out.
+
 "I'm so hungry. What time is i- ALREADY 2PM??? said Hatwey.
 "How?!" said everyone.
 "Well, then we should go back home now." said Matt.
@@ -179,8 +181,9 @@ Luckily, Matt and the others did not meet any bad Manemos on the way back either
 "Let me try!" said Hatwey.
 
 But it did not work.
-"Really?" said Matt.
+"I'll try next!" said Matt.
 He tried putting his hand inside of the mirror, and then Matt suddenly disappeared.
+"What just happened?!" said everyone.
 
 "...Where is this?" said Matt.
 He looked around but he saw nothing.
