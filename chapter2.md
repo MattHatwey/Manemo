@@ -154,3 +154,19 @@ This conversation went on for 4 hours, and I don't want you to get bored of this
 "Okay!" said everyone.
 
 Luckily, Matt and the others did not meet any bad Manemos on the way back either.
+
+"Matt and the others are back!" "Welcome back!" said all the Manemos in town.
+"Did you have fun?" said the prince.
+"Yeah!" said Matt and the others.
+"Hello, Matt." said Queendarudo and Kingdarudo.
+"Hi!" said Matt.
+"Hatwey, your parents are also coming in a little bit." said Queendarudo.
+"Yay!" said Hatwey.
+"Also, Arabelle has come back!" said Kingdarudo.
+"Sansei! It's so good to see you." said Arabelle.
+"I missed you. Are you going to live here?" said Sansei.
+"I will live here from now on." said Arabelle.
+"Hello!" said Leila and Issei.
+"Hello!" said Sansei.
+"Please come the crystal tower. There is a strange thing going on." said the prince.
+"Okay." said Matt and the others.
