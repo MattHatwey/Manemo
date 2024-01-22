@@ -198,3 +198,44 @@ Matt decided to try to look closer, and he touched it.
 "..."
 
 "...Could that memory be in the future?" said Matt.
+"...Let me try another memory." said Matt.
+
+Before Matt could enter another memory, a book suddenly fell from above.
+
+"What's this? Legendaria's book...?" said Matt.
+
+"Legendaria's Book"
+
+"I was born on May 12th. My name is Legendaria. I believe that I am the last human born. I do not have any parents."
+
+"I felt like I was not a kid. I felt like an adult. I thought I looked weird. I guess all the humans here are weird. But one day, I found a note on the ground and picked it up. It said 'I want to create Manemo.' But what is Manemo? I thought. I am the last human, and I don't care if this generation ends, but I would like to create a new generation of humans."
+
+"There were other kids, and I went to school. I liked to stare at the sky during recess, and think for hours and hours, even forgetting to go back to class.
+
+"Suddenly I heard a voice. '...Let us go to heaven.' But if I go to heaven, what would happen to everyone else? 'I do not know, let us go to heaven.' Goodbye." 
+
+"On that day, the world ended. They all died because of a desease."
+
+"Manemo was created."
+
+"I woke up. Nobody was around. Just me. Was this what the note was talking about? Is this a dream? From this day, humans did not exist, nor the belongings of humans. Only the note and the note's dream remained." 
+
+"Suddenly there was a crystal that was shining brightly. It got brighter and brighter.
+
+"??? Years Later"
+
+I decided to try to find that voice. It felt like the voice was inside of me. One day I met her. Her name was Legendarius.
+
+"??? Years Later"
+
+"I had disappeared long ago. But Manemo Land remained. Legendaria was worshipped by all the Manemos. Sometimes, I would apppear to see Manemo Land. Right now, Matt, Sansei, Honest, Hatwey, Ichigo, Choco, Wisteria, Earon, and Rainflower were alive. Long ago, I found a library named Heaven God Spirit Library, and I would always read books in the library, or sit down and relax. I loved the library, so I decided to work there to clean the library."
+
+"One day when I was cleaning, I found a very dirty book. I tried to open it, but it was locked. I tried breaking the lock with a rock, and it worked. But there was nothing in the book. Until suddenly, the book wrote 'Legendaria's Book'. I had already written this book, and that was my life, so I decided to write a fictional book."
+
+"Every day, I wrote in the book. 25 years later, I finished writing it."
+
+"...That's it?" said Matt.
+
+"...I need to find Legendaria's fictional book too." said Matt.
+
+"...This time the story from this book was in the past, but then goes to the future. The library that Legendaria went to was only created 5 years ago. That means Legendaria's Book was created 20 years from now.
