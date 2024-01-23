@@ -206,31 +206,31 @@ Before Matt could enter another memory, a book suddenly fell from above.
 
 "Legendaria's Book"
 
-"I was born on May 12th. My name is Legendaria. I believe that I am the last human born. I do not have any parents."
+I was born on May 12th. My name is Legendaria. I believe that I am the last human born. I do not have any parents.
 
-"I felt like I was not a kid. I felt like an adult. I thought I looked weird. I guess all the humans here are weird. But one day, I found a note on the ground and picked it up. It said 'I want to create Manemo.' But what is Manemo? I thought. I am the last human, and I don't care if this generation ends, but I would like to create a new generation of humans."
+I felt like I was not a kid. I felt like an adult. I thought I looked weird. I guess all the humans here are weird. But one day, I found a note on the ground and picked it up. It said 'I want to create Manemo.' But what is Manemo? I thought. I am the last human, and I don't care if this generation ends, but I would like to create a new generation of humans.
 
-"There were other kids, and I went to school. I liked to stare at the sky during recess, and think for hours and hours, even forgetting to go back to class.
+There were other kids, and I went to school. I liked to stare at the sky during recess, and think for hours and hours, even forgetting to go back to class.
 
-"Suddenly I heard a voice. '...Let us go to heaven.' But if I go to heaven, what would happen to everyone else? 'I do not know, let us go to heaven.' Goodbye." 
+Suddenly I heard a voice. "...Let us go to heaven." "But if I go to heaven, what would happen to everyone else?" "I do not know, let us go to heaven."
 
-"On that day, the world ended. They all died because of a desease."
+On that day, the world ended. They all died because of a desease.
 
-"Manemo was created."
+Manemo was created.
 
-"I woke up. Nobody was around. Just me. Was this what the note was talking about? Is this a dream? From this day, humans did not exist, nor the belongings of humans. Only the note and the note's dream remained." 
+I woke up. Nobody was around. Just me. Was this what the note was talking about? Is this a dream? From this day, humans did not exist, nor the belongings of humans. Only the note and the note's dream remained.
 
-"Suddenly there was a crystal that was shining brightly. It got brighter and brighter.
+Suddenly there was a crystal that was shining brightly. It got brighter and brighter.
 
-"??? Years Later"
+??? Years Later
 
 I decided to try to find that voice. It felt like the voice was inside of me. One day I met her. Her name was Legendarius.
 
-"??? Years Later"
+??? Years Later
 
-"I had disappeared long ago. But Manemo Land remained. Legendaria was worshipped by all the Manemos. Sometimes, I would apppear to see Manemo Land. Right now, Matt, Sansei, Honest, Hatwey, Ichigo, Choco, Wisteria, Earon, and Rainflower were alive. Long ago, I found a library named Heaven God Spirit Library, and I would always read books in the library, or sit down and relax. I loved the library, so I decided to work there to clean the library."
+I had disappeared long ago. But Manemo Land remained. Legendaria was worshipped by all the Manemos. Sometimes, I would apppear to see Manemo Land. Right now, Matt, Sansei, Honest, Hatwey, Ichigo, Choco, Wisteria, Earon, and Rainflower were alive. Long ago, I found a library named Heaven God Spirit Library, and I would always read books in the library, or sit down and relax. I loved the library, so I decided to work there to clean the library.
 
-"One day when I was cleaning, I found a very dirty book. I tried to open it, but it was locked. I tried breaking the lock with a rock, and it worked. But there was nothing in the book. Until suddenly, the book wrote 'Legendaria's Book'. I had already written this book, and that was my life, so I decided to write a fictional book."
+One day when I was cleaning, I found a very dirty book. I tried to open it, but it was locked. I tried breaking the lock with a rock, and it worked. But there was nothing in the book. Until suddenly, the book wrote 'Legendaria's Book'. I had already written this book, and that was my life, so I decided to write a fictional book.
 
 "Every day, I wrote in the book. 25 years later, I finished writing it."
 
@@ -238,4 +238,30 @@ I decided to try to find that voice. It felt like the voice was inside of me. On
 
 "...I need to find Legendaria's fictional book too." said Matt.
 
-"...This time the story from this book was in the past, but then goes to the future. The library that Legendaria went to was only created 5 years ago. That means Legendaria's Book was created 20 years from now.
+"...This time the story from this book was in the past, but then goes to the future. The library that Legendaria went to was only created 5 years ago. That means Legendaria's Book was created 20 years from now. It might be inside of this mirror. Let me explore more." said Matt.
+
+Matt went further away from the memories, but some of them were following after him.
+
+"...These must be important." said Matt.
+
+"...Let me try this one first." said Matt.
+
+Matt put his hand inside of it, and he teleported to the next memory.
+
+"...I read a book named 'Legendaria's Book'. I am a Manemo from the future. We believe that Legendaria is the 'start' of Manemo. I also read of the ancient story of Matt and the others, along with the story of Masa."
+
+"Return"
+
+I was walking back to home one day, and it started raining. I saw a girl with a bike go past me. She was about to go through the puddle that was created by the rain. Luckily, in Manemo Land, there is a bike lane and a walking lane. I also saw a boy waving at his little brother. He was probably going to buy food for dinner. Suddenly the girl who was riding her bike noticed something on her bike. While she was trying to fix it, she leaned forward so much that she fell into the puddle. "Are you okay?" I asked. She nodded. The boy just stared at us. I helped the girl get up, but she suddenly pointed towards the bike. The bike was coming toward us. The boy came running to us, but the bike was about to hit the girl. We were both too scared to get up. Just as I thought I was going to get hit by the bike, the boy stopped the bike. "Are you two okay?" asked the boy. "Thank you!" said the girl and I. The boy suddenly winked at us. "You go to Manemo International, right? Nice to meet you!" said the boy. "Yeah!" said the girl and I.
+
+The next day
+
+I walked towards my school and I saw the boy. "Good Morning!" said the boy. "Good Morning" said I. The boy walked toward the classrooms. I did not have any friends until now, and usually I look at the ground, but today, I looked around me. There were many classrooms and many Manemos. He opened the door to our classroom. When we opened the door, there was one girl who was sleeping in the classroom. She woke up and said "Good Morning! You're the girl and the boy from yesterday, right?" "Yeah! And Good Morning" said the boy. Good Morning to you too." said I. "What are your names, anyway?" said the boy. "I'm Akira, but call me Sumida." said Sumida. "I'm Kiki!" said Kiki. "I am Suzu. said I. "I'll call you Aki-chan and you are Suzu-chi" said Kiki. Sumida was really kind, and always helping others. Kiki is always excited and always said extra things. "And you're the quiet kid!" said Kiki. "I have a little brother that is very cute and exctied." said Sumida. "I have a little sister too." said I. "Is your lil sis annoying?" said Kiki. "No, not at all." said I. Suddenly we heard a very loud noise. "I think all the Manemos are coming. Put your backpacks in the cubbies." said Sumida. We were just in time. The moment the door burst open, it became really crowded. Sumida's advice helped.
+
+"Lunch Break!" said the teacher. Everyone went running toward the lunch tables. Sumida and Kiki and I decided to eat in the classroom because Kiki wanted to talk about something. "What did you want to talk about?" I asked. "You know how our classroom is only one floor below the rooftop? Have you ever realized that the rooftops are always closed since 3 years ago? It's not because someone fell off the rooftop as we're told, it's because there are cases of bad Manemos randomly appearing there. The next class is magic class, and now is the chance to learn magic." said Kiki. "I think we should learn to fly first." said Sumida. "I already know how to fly." said Kiki. "I know how to do a few attacks with spells." said Sumida. "Can you do anything?" asked Kiki. "I don't know magic that well, and I can only use this book for magic." said I. "Okay." said Kiki. "Let's do this!" said Sumida and Kiki and I. 
+
+After magic class was over, we went to math class. And after that, it was recess. "Let's go!" said Kiki. Kiki went to the rooftop by flying out of the window. Sumida climbed up the emergency ladder outside of the window. And I got helped by Kiki. "Thanks Kiki." "How else would you have come to the rooftop?" said Kiki. "We made it!" said Sumida.
+
+"...Get ready to die!" said a bad Manemo.
+
+"Oh no." said Kiki. "There's three of them." said Sumida. "One bad Manemo each." said I. Kiki confused the bad Manemo by flying around the bad Manemo very fast. Sumida knocked the second Manemo off the rooftop. Kiki and Sumida both looked concered because the bad Manemo I was facing was big, and also because my magic is not the most powerful thing in the world. "I will call you when I need your help." said I. I got my book out and started to say the words.
