@@ -274,7 +274,50 @@ And that was how magic returned me to what I used to be. A Manemo who loved magi
 
 "C♠︎rd (card)"
 
-I used to have a wonderful life in the Card Era of Manemo Land. I used to be the student, the cook, and the caretaker of the King.
+I used to have a wonderful life in the Card Era of Manemo Land. I used to be the student and the caretaker of the King.
 
 "Massage my legs NOW!" said the King. 
-"Yes King." 
+"Yes King." said I. I actually didn't want to do this.
+
+Until one day, the King said this: "Bring me my shirt. And go buy a week's worth of food. And a massage, and then buy my shoes too." 
+
+"NO." said I.
+"I mean-" said I.
+
+I knew this was the end for me. I would either have to worship the King from now, or go to prison. They made me breathe in some weird chemical that made me dizzy and sleepy. When I woke up, I was in prison. And my one eye would not open. 
+
+The only reason why the King is the King is because he was born as the King of Hearts. Some Manemos are born as spades or clubs, which are the most unlucky Manemos. Diamonds are kind of like a prince. They love to show off and hate the hearts as much as we do. Next, when you are born, you get a number. I got 1, which is the lowest kind. But it doesn't matter. Even if you were to become the King of spades, nothing would happen. Unless you are the only King at the time. There's not that much else to learn about the life of a Manemo who lives in the Card Era.
+
+It has been 30 years since I went to prison. It has also been 150 years since Masa dissapeared. Nobody is allowed to talk about the past, like Legendaria, Matt, Masa, or even Suzu and the others.
+
+"Are you okay? I'm Yotubano Clover (Yotubano = four leaf)!" said Clover. "Would you please help me?" I asked. "Here you go!" said Clover. He gave me the key.
+
+I could tell Clover was still very young. He was always energetic and lively. Sadly, this would not go on forever, though. I could tell he was about 15, because sometimes he had an expression that looked very depressed and sad.
+
+"Thank you!" said I. 
+
+Suddenly, Clover went over to Matt's mirror, and put his hand in.
+
+"DON'T DO THA-" I shouted.
+
+"Wha-" Clover disappeared.
+
+I also put my hand in the mirror, and I never touched this book again.
+
+"...The End? Does that mean-" said Matt.
+
+"...HI!!!" said Clover. "Hi!" said Matt. "Since were in a third perspective place, let me introduce myself. My name is Ace Spade." said Spade. "There you go." said Matt. Matt fixed Spade's eye. "Thank you." said Spade. 
+
+There was a cape and a broken cressent moon charm, along with a few other items. Next to the cape was a pile of flower bouquets and a book with no writing. And next to that there was another book, and the title said "Legendaria's Legend".
+
+"Wait- That's the cape of Masa, along with Suzu's flower fireworks and her magic book, and that's Legendaria's fictional book next to Suzu's book!" said Matt.
+
+"Hello?" said Masa and the others, along with Legendaria and Legendarius and Enchendaria, and Suzu and her little sister, Sumida and his little brother, and Kiki.
+
+"Should we go to Matt's life now?" said Clover. "Yeah, Let's!" said everyone.
+
+"...Matt?! LEGENDARIA?! AND MORE?!?!?!" said everyone in the crystal tower.
+
+"Hi!" said Matt.
+
+"You've been gone for a day now." said Sansei.
