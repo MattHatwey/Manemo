@@ -272,4 +272,9 @@ And that was how magic returned me to what I used to be. A Manemo who loved magi
 
 "...Let me try this one next." said Matt.
 
-"C♠︎rd (card)
+"C♠︎rd (card)"
+
+I used to have a wonderful life in the Card Era of Manemo Land. I used to be the student, the cook, and the caretaker of the King.
+
+"Massage my legs NOW!" said the King. 
+"Yes King." 
