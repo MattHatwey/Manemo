@@ -319,5 +319,30 @@ There was a cape and a broken cressent moon charm, along with a few other items.
 "...Matt?! LEGENDARIA?! AND MORE?!?!?!" said everyone in the crystal tower.
 
 "Hi!" said Matt.
-
 "You've been gone for a day now." said Sansei.
+"We found a mysterious object yesterday, after you left." said Hatwey.
+"I'll check it out later, I forgot to look at one memory because Spade and Clover came." said Matt.
+"See you later!" said Hatwey. Matt put his hand in, and he magically teleported inside.
+
+"...The next memory is..." said Matt.
+
+"...Matt?..."
+
+"...Next week..."
+
+"...Born..."
+
+"...Name..."
+
+"...Goodbye..."
+
+"...That's it?" said Matt.
+
+"I don't understand what this means." said Matt.
+
+"Matt, next week, born, name, goodbye." said Matt.
+
+Matt thought for 30 minutes until he finally understood.
+
+"Matt's children are born next week, name them. Goodbye." said Matt. Then he immediatly went back to the crystal tower to tell everyone.
+"You're back!" said Sansei and Hatwey."What did you see this time?" asked Honest."Matt's children are born next week, name them. Goodbye." said Matt."WHAT?!" said Sansei and Hatwey."But you're a man." said Honest. Then everyone in the crystal tower looked at Hatwey and Sansei, then realized Hatwey was too young, so they all stared at Sansei. "Next week will be a wedding, perhaps." said the prince.
