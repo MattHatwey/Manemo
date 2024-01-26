@@ -12,4 +12,10 @@
 
 "...No..." said Masa.
 
-Masa came up to odd, then handed him the cresent moon-shaped 
+Masa came up to odd, then handed him the cresent moon-shaped charm, which was sewed onto Masa's cape. Odd suddenly shattered into millions of pieces. So did the robots and the other bad Manemos. Masa took off his cape. Matt noticed his hair was black, and colorless. "What happened to your hair? It's as black as back when you were a bad Manemo, too." said Matt. "I will turn into a bad Manemo again soon, so I will explain this quickly." said Masa. "That cresent moon charm is called a Heles charm. It changes bad Manemos to good Manemos, or in Odd's case, because he is such a bad Manemo, he shattered into millions of pieces. Sometimes that can happen. The Heles charm can easily be reattached to a different Manemo. I found this charm, and ever since I got this charm, I became a good Manemo. It is like a reverse spell." said Masa. "One last question." said Matt. "Why are you so old even you were born in the future?" asked Matt. "When you time travel and you were 15, you would still be 15 even if you go to the past, or to the future." said Masa. Matt said "Thank y-". 
+
+Suddenly Masa broke into millions of pieces of glass. 
+
+After that, Sansei decided to make a goal. Her goal was to gather every piece of glass, until she could retrieve Masa. He was the only hope to fix Manemo Land back to what it used to be. Matt also had a goal to find Masa's Heles charm and retrieve Masa. 
+
+Sansei found all the shards before the sunset came. Luckily the shards of glass did not get carried far away by the wind. After Sansei found all the shards, she started gathering every type of glass. She noticed that some of the glass shards she found had some kind of  magic. The last step to retrieve Masa was to find the Heles charm.
