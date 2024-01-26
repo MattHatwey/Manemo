@@ -2,4 +2,6 @@
 
 "...Good Morning..." said everyone. "The wedding will be in 3 days." said the prince. Prince was going to go with Pattern to the wedding, so he didn't have the time to make a surprise wedding with the others. "What was that strage object you were talking about yesterday?" asked Matt. "I'll show you!" said Hatwey and Honest. Get dressed if you want to come!" said Honest. Everyone got dressed.
 
-"It's not far from here." said Hatwey. "You can already see it!" said Honest. "We've arrived!" said Earon and Wisteria. "What is this?" said Matt.
+"It's not far from here." said Hatwey. "You can already see it!" said Honest. "We've arrived!" said Earon and Wisteria. "What is this?" said Matt. "It's an old-fashioned teleporter system." said Sansei. In present Manemo Land, teleporters were very common and had a similar shape to telephone boxes. But instead of calling someone, you could teleport to their houses or anywhere else in the world. But in the past, you were supposed to use a rope hanging down from the ancient tree. "There's a hole where you're supposed to swing below. I don't think this hole is supposed to be here." said Honest.
+
+"You're right!" said someone. "Who's what?" said everyone. "TIME TO BATTLE!" said Odd. There were more robots than before. The same 
