@@ -2,6 +2,8 @@
 
 ↓ Click on these links to see the story of Manemo! ↓
 
+[⚚ HOW TO USE THE WORD MANEMO ⚚](README.md)
+
 [⚚ PREFACE ⚚](preface.md)
 
 [♅ CH 1 ♅](chapter1.md)
