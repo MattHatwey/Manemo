@@ -48,3 +48,4 @@ The day had come so fast, almost too fast. It was the day of the wedding.
 
 "Too bad that the wedding is in the old building." said Matt. Matt and Sansei were the only good Manemos who didn't know about the renovation of the building. All the flowers, decorations, and food were prepared. The building used to be a very old wooden building, but now it looked like a church mixed with a modern style house (this book was written in 2024, so 'modern houses' these days are just white boxes with black outlines). "Let's go to the building!" said Sansei. "I don't know which one it is though..." said Matt and Sansei. Everyone else pretended to agree with them, but they knew exactly where is was.
 
+"We're ready!" said Matt and Sansei. "Let's go!" said everyone. "I'll navigate where it is." said Honest. "You know where it is?" asked Sansei. "Yeah, my dad told me." said Honest. "Oh." said Matt.
