@@ -40,4 +40,4 @@ They looked at the cashier, and she was smiling at us, and Ichigo realized it wa
 
 Ichigo hugged Moko-Sensei, and said she should come to the wedding too. Sansei probably knew Moko-Sensei because Ichigo and Sansei were the same age, and there was only one school in Kyuusei.
 
-Hatwey, Honest, and Rainflower started renovating the building immediatly. Hatwey and Rainflower were good at designing, so Hatwey was told to do the interior, and Rainflower did the exterior. Honest was assigned to build the design that Rainflower and Hatwey thought of, because he was the only Manemo in the group who could use wand magic to make the buildings, and because he wasn't the best at designing 
+Hatwey, Honest, and Rainflower started renovating the building immediatly. Hatwey and Rainflower were good at designing, so Hatwey was told to do the interior, and Rainflower did the exterior. Honest was assigned to build the design that Rainflower and Hatwey thought of, because he was the only Manemo in the group who could use wand magic to make the buildings, and because he wasn't the best at designing. The process went smoother than expected.
