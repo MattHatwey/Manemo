@@ -41,3 +41,10 @@ They looked at the cashier, and she was smiling at us, and Ichigo realized it wa
 Ichigo hugged Moko-Sensei, and said she should come to the wedding too. Sansei probably knew Moko-Sensei because Ichigo and Sansei were the same age, and there was only one school in Kyuusei.
 
 Hatwey, Honest, and Rainflower started renovating the building immediatly. Hatwey and Rainflower were good at designing, so Hatwey was told to do the interior, and Rainflower did the exterior. Honest was assigned to build the design that Rainflower and Hatwey thought of, because he was the only Manemo in the group who could use wand magic to make the buildings, and because he wasn't the best at designing. The process went smoother than expected.
+
+By the time the three groups came back to the crystal tower, it had been 12 hours. They started at 8AM, and now it was 8PM. It was time to sleep. "Good Night!" said everyone. the wedding was in 3 days.
+
+The day had come so fast, almost too fast. It was the day of the wedding.
+
+"Too bad that the wedding is in the old building." said Matt. Matt and Sansei were the only good Manemos who didn't know about the renovation of the building. All the flowers, decorations, and food were prepared. The building used to be a very old wooden building, but now it looked like a church mixed with a modern style house (this book was written in 2024, so 'modern houses' these days are just white boxes with black outlines). "Let's go to the building!" said Sansei. "I don't know which one it is though..." said Matt and Sansei. Everyone else pretended to agree with them, but they knew exactly where is was.
+
