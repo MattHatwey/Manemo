@@ -51,3 +51,4 @@ The day had come so fast, almost too fast. It was the day of the wedding.
 "We're ready!" said Matt and Sansei. "Let's go!" said everyone. "I'll navigate where it is." said Honest. "You know where it is?" asked Sansei. "Yeah, my dad told me." said Honest. "Oh." said Matt.
 
 "What?!" said Matt. "I thought it was a old wooden building." said Sansei. By this time, everyone besides Matt and Sansei were grinning and laughing at each other. "We renovated it!" said everyone who lived in the crystal tower besides Matt and Sansei. Prince was watching with Pattern at the front seats. The two flower girls (Ichigo and Choco) were walking around with beautiful dresses.
+
