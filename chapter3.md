@@ -50,5 +50,20 @@ The day had come so fast, almost too fast. It was the day of the wedding.
 
 "We're ready!" said Matt and Sansei. "Let's go!" said everyone. "I'll navigate where it is." said Honest. "You know where it is?" asked Sansei. "Yeah, my dad told me." said Honest. "Oh." said Matt.
 
-"What?!" said Matt. "I thought it was a old wooden building." said Sansei. By this time, everyone besides Matt and Sansei were grinning and laughing at each other. "We renovated it!" said everyone who lived in the crystal tower besides Matt and Sansei. Prince was watching with Pattern at the front seats. The two flower girls (Ichigo and Choco) were walking around with beautiful dresses.
+"What?!" said Matt. "I thought it was a old wooden building." said Sansei. By this time, everyone besides Matt and Sansei were grinning and laughing at each other. "We renovated it!" said everyone who lived in the crystal tower besides Matt and Sansei. The prince was watching with Pattern at the front seats.
 
+The two flower girls (Ichigo and Choco) were walking around with beautiful dresses.
+
+Wisteria and Earon were wearing cute cooking outfits along with Onpurin, Ai, Con, Tiramisu, Creamy, Kuzu-kun, Waffle, and Pancake.
+
+Hatwey, Honest and Rainflower were wearing very fancy outfits.
+
+Matt and Sansei looked very happy.
+
+Pattern and the prince were laughing.
+
+Snow was staring at Matt and Sansei.
+
+The wedding had started. Everyone was smiling, eating, talking with Matt and Sansei, or playing with Snow. The food was very delicious. Everyone was talking, and since every Manemo besides the bad Manemos came, it was very loud, but in a good way. Matt gave Sansei a pure diamond and gold ring. Sansei's dress was tinted with gold leaf, so the ring was perfect. And it was.
+
+Soon the wedding had ended. Everyone was going back home when Sansei brought a Manemo named Star. Earon and Wisteria knew who Star was. She was the godess of stars. She was one of the gods and godesses of Manemo Land. She had a black skirt.
