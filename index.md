@@ -12,4 +12,6 @@
 
 [❄✡ CH 3 ✡☼](chapter3.md)
 
+[♅ HOW TO USE THE WORD MANEMO ♅](README.md)
+
 More stories about Manemo coming soon!
