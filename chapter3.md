@@ -73,3 +73,9 @@ Soon the wedding had ended. Everyone was going back home when Sansei brought a M
 "I'm back!" said Masa.
 
 "How did you come back?" asked Matt.
+
+"I found this little Manemo here, and she helped me." said Masa.
+
+"Hello. Where are your parents? Why do you have blood in your hair? Why do you have a gem on your head? Why do you have a dagger knife in your hand?" asked Matt.
+
+"I don't have any parents. My parents gave me this knife, for 'cooking'. I didn't know how to cook. So instead I used this to fight." said Calipi. Everyone was scared of Calipi. "As long as you don't fight me, I won't fight you back." said Calipi.
