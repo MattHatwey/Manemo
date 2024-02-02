@@ -1,12 +1,12 @@
 Matt’s Family (2024/1)
 
--Matt (Born:2000/11/15 Age:24
+-Matt (Born:2000/11/15 Age:23
 
--Sansei (Born:2003/3/30 Age:21
+-Sansei (Born:2003/3/30 Age:20
 
 -Kacchan (Born:2022/2/14 Age:1
 
--Calipi (Born:2022/1/25 Age:2
+-Calipi (Born:2022/1/25 Age:1
 
 -Snow (Born:2023/12/21 Age:0
 
@@ -40,35 +40,35 @@ Matt’s Family (2024/1)
 
 Matt and Sansei’s Friends
 
--Hatwey (Born: Age:
+-Hatwey (Born:2006/10/31 Age:18
 
--Honest (Born: Age:
+-Honest (Born:2005/11/12 Age:19
 
--Rainflower (Born: Age:
+-Rainflower (Born:2005/4/6 Age:19
 
--F.S. (Born: Age:
+-F.S. (Born:2010/3/29 Age:14
 
--Truth (Born: Age:
+-Truth (Born:2005/8/6 Age:19
 
--Freedom (Born: Age:
+-Freedom (Born:2005/6/28 Age:19
 
--Love (Born: Age:
+-Love (Born:2010/2/14 Age:14
 
--Tengoku Kara Kita Mahou Tsukai Chan (Born: Age:
+-Tengoku Kara Kita Mahou Tsukai Chan (Born:2010/3/3 Age:14
 
--P.O.T. (Born: Age:
+-P.O.T.
 
 -Prince (Born: Age:
 
--Waffle And Pancake (Born: Age:
+-Waffle And Pancake
 
--girlfriend.png (Born: Age:
+-girlfriend.png 
 
--boyfriend.jpeg (Born: Age:
+-boyfriend.jpeg 
 
--Spilled Stuff (Born: Age:
+-Spilled Stuff 
 
--GalaxyStar (Born: Age:
+-GalaxyStar (Born:2000/ Age:
 
 -GreenStar (Born: Age:
 
