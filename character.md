@@ -4,7 +4,7 @@ Matt’s Family (2024/1)
 
 -Sansei (Born:2003/3/30 Age:20
 
--Kacchan (Born:2022/2/14 Age:1
+-Kacchan (Born:2022/6/6 Age:1
 
 -Calipi (Born:2022/1/25 Age:1
 
@@ -58,7 +58,7 @@ Matt and Sansei’s Friends
 
 -P.O.T.
 
--Prince (Born: Age:
+-Prince (Born:1986/6/21 Age:41
 
 -Waffle And Pancake
 
@@ -68,119 +68,219 @@ Matt and Sansei’s Friends
 
 -Spilled Stuff 
 
--GalaxyStar (Born:2000/ Age:
+-GalaxyStar (Born:100/11/15 Age:23?
 
--GreenStar (Born: Age:
+-GreenStar (Born:100/12/12 Age:23?
 
--Ai (Born: Age:
+-Ai (Born:2017/5/5 Age:6
 
--Con (Born: Age:
+-Con (Born:2017/5/5 Age:6
 
--Onpurin (Born: Age:
+-Onpurin (Born:2010/10/27 Age:14
 
--Tiramisu (Born: Age:
+-Tiramisu (Born:2015/3/14 Age:8
 
--Creamy (Born: Age:
+-Creamy (Born:2015/3/14 Age:8
 
--Cinnamon (Born:  Age:
+-Cinnamon
 
--Cream (Born: Age:
+-Cinnamon
 
--Issei (Born: Age:
+-Issei (Born:1990/4/5 Age:32
 
--Leila (Born: Age:
+-Leila (Born:1996/9/9 Age:26
 
--Pattern (Born: Age:
+-Pattern (Born:1984/8/1 Age:39
 
--Arabelle (Born: Age:
+-Arabelle (Born:1984/5/31 Age:39
 
--Legendaria (Born: Age:
+-Legendaria (Born:0 Age♾️
 
--Legendarius (Born: Age:
+-Legendarius (Born:0? Age♾️?
 
--Enchendaria (Born: Age:
+-Enchendaria (Born:0? Age♾️?
 
--Goki #1 (Born: Age:
+-Goki #1
 
--Goki #2 (Born: Age:
+-Goki #2
 
--Goki #3 (Born: Age:
+-Goki #3 
 
--Kuzukun (Born: Age:
+-Kuzukun (Born:2010/1/3 Age:14
 
--Kusa (Born: Age:
+-Kusa
 
--Pirate (Born: Age:
+-Pirate
 
--Heart (Born: Age:
+-Heart
 
--Candy Bag (Born: Age:
+-Candy Bag 
 
--Candy (Born: Age:
+-Candy  
 
--Bob (a) (Born: Age:
+-Bob (a)
 
--BOB (Born: Age:
+-BOB 
 
--HB Pencil(Born: Age:
+-HB Pencil
 
--Child Paper (Born: Age:
+-Child Paper 
 
--Paper (Born: Age:
+-Paper 
 
--GumiAke-San! (Born: Age:
+-GumiAke-San! 
 
--Reton (Palette) (Born: Age:
+-Reton (Palette) (Born:2010/8/25 Age:14
 
--Easter (Born: Age:
+-Easter (Born:2010/4/? Age:14
 
--Pastel (Born: Age:
+-Pastel (Born:2010/2/15 Age:14
 
--Platius (Born: Age:
+-Platius (Born:2010/2/15 Age:14
 
--Kou (Born: Age:
+-Pescarudo (Born:100 Age:24?
 
--Tei (Born: Age:
+-Kingdarudo (Born:0 Age♾️
 
--Pescarudo (Born: Age:
+-Old Kingdarudo (Born:0 Age♾️
 
--Kingdarudo (Born: Age:
+-Queendarudo (Born:0 Age♾️
 
--Queendarudo (Born: Age:
+-Old Queendarudo (Born:0 Age♾️
 
--Pink (Born: Age:
+-Pink (Born:2022/6/6 Age:1
 
--Mirage (Born: Age:
+-Mirage (Born:2022/1/27 Age:1
 
--amethyst (Born: Age:
+-garnet (Born:2000/ Age:23
 
--bizmuth (Born: Age:
+-amethyst (Born:2000/ Age:23
 
--quartz (Born: Age:
+-aquamarine
 
--emerald (Born: Age:
+-diamond
 
--diamond (Born: Age:
+-emerald 
 
--amber (Born: Age:
+-pearl
+
+-ruby
+
+-peridot
+
+-sapphire
+
+-opal
+
+-topaz
+
+-turquoise
+
+-lapis
+
+-jade
+
+-tourmaline
+
+-corrundum
+
+-moonstone
+
+-vivianite
+
+-sunstone
+
+-bloodstone
+
+-serpentine
+
+-citrine
+
+-nuummite
+
+-black pearl
+
+-calcite
+
+-coral
+
+-selenite
+
+-scolecite
+
+-carnelian
+
+-cassiterite
+
+-pietersite
+
+-spinel
+
+-star sapphire
+
+-ametrine
+
+-agate
+
+-ammolite
+
+-andalusite
+
+-chrysocolla
+
+-labradorite
+
+-mother of pearl
+
+-flourite
+
+-mystic topaz
+
+-mystic quartz
+
+-opal doublet
+
+-rainbow pirite
+
+-rhodochrosite
+
+-spectrolite
+
+-malaya garnet
+
+-rubellite
+
+-sugillite
+
+-chalcedony
+
+-charoite
+
+-tanzanite
+
+-bizmuth (Born:2000/ Age:23
+
+-quartz (Born:2000/ Age:23
+
+-amber (Born:2000/ Age:23
 
 Pets
 
--Hatopoppo (Born: Age:
+-Hatopoppo 
 
--Ichigodori (Born: Age:
+-Ichigodori
 
--Ran (Born: Age:
+-Ran 
 
--Kaineko (Born: Age:
+-Kaineko 
 
--Na-ko (Born: Age:
+-Na-ko 
 
--Souneko (Born: Age:
+-Souneko 
 
--Kuku(Born: Age:
+-Kuku
 
--Name (Born: Age:
+-Name 
 
 -Lily (Born: Age:
 
