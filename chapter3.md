@@ -76,10 +76,14 @@ Soon the wedding had ended. Everyone was going back home when Sansei brought a M
 
 "I found this little Manemo here, and she helped me." said Masa.
 
-"Hello. Where are your parents? Why do you have blood in your hair? Why do you have a gem on your head? Why do you have a dagger knife in your hand?" asked Matt.
+"Hello. Where are your parents? Why do you have red stripes in your hair? Why do you have a gem on your head? Why do you have a dagger knife in your hand?" asked Matt.
 
-"I don't have any parents. My parents gave me this knife, for 'cooking'. I didn't know how to cook. So instead I used this to fight." said Calipi. Everyone was scared of Calipi. "As long as you don't fight me, I won't fight you." said Calipi.
+"I don't have any parents. I found this knife, for 'cooking'. I didn't know how to cook. So instead I used this to fight." said Calipi. Everyone was scared of Calipi. "As long as you don't fight me, I won't fight you." said Calipi.
 
 Everyone soon understood that Calipi was scared too, and that was why she had a knife.
 
-"Calipi. It's okay." said Matt. "You don't have to be scared." said Sansei. Calipi dropped the knife on the ground, and Matt buried it into the ground.
+"Calipi. It's okay." said Snow. "Don't be scared." said Snow. Calipi looked at Snow and dropped the knife. Snow buried it. Soon they were walking their way toward home, holding hands. "Calipi." said Snow. "Snow." said Calipi.
+
+Calipi was older than Kacchan, but Calipi loved to pretend to be the youngest one. Everyone didn't mind Calipi being the youngest. Snow loved Calipi.
+
+After Matt and the others arrived home, Sansei and Matt decided that they were going to spend their magic on making more kids. Since
