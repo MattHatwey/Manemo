@@ -101,7 +101,7 @@ It was Old Kingdarudo and Old Queendarudo’s egg. They decided to name her Hatw
 "My name is Honest. I'm Sansei."
 "Who are you?" asked Sansei and Honest. "I'm Matt." "And I'm Hatwey!"
 
-  Matt was 12 years old, Hatwey was 0 years old, Honest was 3 years old, and Sansei was 6 years old. 
+  Matt was 12 years old, Hatwey was 7 years old, Honest was 8 years old, and Sansei was 9 years old. 
   The next day, they ventured to the old castle of Infinity when they saw a carriage with a bad Manemo on it, but nobody besides the bad Manemos know her name.
 
   The bad Manemo was welcomed by Odd, a fat and mean Bad Manemo, and Even, who was a slave.
