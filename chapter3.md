@@ -86,4 +86,6 @@ Everyone soon understood that Calipi was scared too, and that was why she had a 
 
 Calipi was older than Kacchan, but Calipi loved to pretend to be the youngest one. Everyone didn't mind Calipi being the youngest. Snow loved Calipi.
 
-After Matt and the others arrived home, Sansei and Matt decided that they were going to spend their magic on making more kids. Since
+After Matt and the others arrived home, Sansei and Matt decided that they were going to spend their magic on making more kids. Since they were the Emperror and Empress of Manemo Land, they had more magic than they ever needed. Usually Matt and Sansei tried to give magic to Manemos for free, but soon everyone had more magic than they ever needed, and Matt and Sansei still had alot of magic. 
+
+For the next 
