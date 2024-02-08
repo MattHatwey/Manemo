@@ -88,4 +88,11 @@ Calipi was older than Kacchan, but Calipi loved to pretend to be the youngest on
 
 After Matt and the others arrived home, Sansei and Matt decided that they were going to spend their magic on making more kids. Since they were the Emperror and Empress of Manemo Land, they had more magic than they ever needed. Usually Matt and Sansei tried to give magic to Manemos for free, but soon everyone had more magic than they ever needed, and Matt and Sansei still had alot of magic. 
 
-For the next 
+For the next 12 years, Matt and Sansei made many children. Kacchan was already 13, and Matt and Sansei found a few lost kids, and all of them wanted to live in the Crystal tower. 
+
+Calipi usually was in the Crystal tower. She didn't like attention from Manemos she didn't know. The only times she would go out was when she needed to buy food from the grocery. 
+
+Kacchan seemed to have a completly different life hidden from her family. Kacchan's actual name was Pink, and she was one of the popular idols of Manemo Land. 'Peekaboo IdoLz' was the name of the group she was in. It was a group of Lemon, who is a peekaboo(peekaboo is a type of bird),Mirage, and Pink. Mirage and Kacchan(Pink) were friends since elementary school. Pink had no friends. But she loved to dance. One day, a girl named Mirage sat next to her. Mirage was new at the school. They loved to dance. Pink brought a idol uniform to school, and so did Mirage. They would escape from school by climbing the fence(keep in mind that these two were still 7). They would go to big concerts, and would dance. They were always told that they weren't allowed inside, but they didn't care. Soon many Mirage and Pink had many fans. And 7 years later, they named their group 'Peekaboo IdoLz' because a peekaboo named Lemon joined and named the group. Everyone immediatly got used to Lemon in Pink and Mirage's live concert. A lot of Manemos were fans of Lemon, too.
+
+Snow loved to go outside, and feel the cool breeze. He had no friends. After 12 years, Snow still loves Calipi, and when he comes back home for dinner, Calipi would always wait in the entrance. They even made a kid named Kiwi, who was two.
+
