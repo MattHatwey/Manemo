@@ -18,9 +18,9 @@ Matt’s Family (2024/1)
 
 -Mist (Born:2024/7/12 Age:
 
--Esper (Born:2026/11/22 Age:
-
 -Aves (Born:2026/5/11 Age:
+
+-Esper (Born:2026/11/22 Age:
 
 -Crystal (Born:2027/3/20 Age:
 
@@ -34,9 +34,9 @@ Matt’s Family (2024/1)
 
 -Haru (Born:2034/3/15 Age:
 
--Flame (Born:2034/10/10 Age:
-
 -Kiwi (Born:2034/8/8 Age:
+
+-Flame (Born:2034/10/10 Age:
 
 Matt and Sansei’s Friends
 
