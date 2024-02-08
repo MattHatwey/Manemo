@@ -4,6 +4,8 @@
 
 [⚚ HOW TO USE THE WORD MANEMO ⚚](README.md)
 
+[⚚ CHARACTERS ⚚](character.md)
+
 [⚚ PREFACE ⚚](preface.md)
 
 [♅ CH 1 ♅](chapter1.md)
