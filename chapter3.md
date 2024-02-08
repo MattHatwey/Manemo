@@ -94,6 +94,8 @@ Calipi usually was in the Crystal tower. She didn't like attention from Manemos 
 
 Kacchan seemed to have a completly different life hidden from her family. Kacchan's actual name was Pink, and she was one of the popular idols of Manemo Land. 'Peekaboo IdoLz' was the name of the group she was in. It was a group of Lemon, who is a peekaboo(peekaboo is a type of bird),Mirage, and Pink. Mirage and Kacchan(Pink) were friends since elementary school. Pink had no friends. But she loved to dance. One day, a girl named Mirage sat next to her. Mirage was new at the school. They loved to dance. Pink brought a idol uniform to school, and so did Mirage. They would escape from school by climbing the fence(keep in mind that these two were still 7). They would go to big concerts, and would dance. They were always told that they weren't allowed inside, but they didn't care. Soon many Mirage and Pink had many fans. And 7 years later, they named their group 'Peekaboo IdoLz' because a peekaboo named Lemon joined and named the group. Everyone immediatly got used to Lemon in Pink and Mirage's live concert. A lot of Manemos were fans of Lemon, too.
 
+Obsidian was a mysterious Manemo. He
+
 Snow loved to go outside, and feel the cool breeze. He had no friends. After 12 years, Snow still loves Calipi, and when he comes back home for dinner, Calipi would always wait in the entrance. They even made a kid named Kiwi, who was two.
 
 Meru loved guns. He would love to look cool, and attracted many girls. He would fight until his guns broke(he has 27 guns so far). He was actually very kind, but loved to tease his twin, Mist. One time Meru tried to shoot Mist when Mist stole 9 of his precious guns. Meru also loves a cute girl named Heather. Meru and Heather made a kid named Haru.
