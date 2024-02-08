@@ -14,4 +14,6 @@
 
 [❄✡ CH 3 ✡☼](chapter3.md)
 
+[⚚ MATT'S FAMILY ⚚](mattkids.md)
+
 More stories about Manemo coming soon!
