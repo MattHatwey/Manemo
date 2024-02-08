@@ -96,3 +96,7 @@ Kacchan seemed to have a completly different life hidden from her family. Kaccha
 
 Snow loved to go outside, and feel the cool breeze. He had no friends. After 12 years, Snow still loves Calipi, and when he comes back home for dinner, Calipi would always wait in the entrance. They even made a kid named Kiwi, who was two.
 
+Meru loved guns. He would love to look cool, and attracted many girls. He would fight until his guns broke(he has 27 guns so far). He was actually very kind, but loved to tease his twin, Mist. One time Meru tried to shoot Mist when Mist stole 9 of his precious guns. Meru also loves a cute girl named Heather. Meru and Heather made a kid named Haru.
+
+Mist was a very kind Manemo. She liked to help Sansei, and play with her siblings. But when Meru would tease her, she started a big fight with Meru, and they would fight for 2 hours minimum.
+
