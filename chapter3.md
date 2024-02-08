@@ -106,6 +106,18 @@ Aves was a Manemo who came from a different planet. He was the first signs of Mi
 
 Esper was best friends with Aves. Esper and Crystal ran a Boba Tea place named Bubble Lake Boba. Crystal and Esper are considered the best siblings of all time.
 
+Crystal loves Esper. Crystal does everything with Esper. She has special Crystal-related powers.
 
+Sirius is the twin of Bubble. Sirius is a prankster. She loves to surprise Manemos suddenly by jump scaring them, or suddenly splashing them with water. Sirius likes to play with Mist.
+
+Bubble is the twin of Sirius. She is chaotic and even more of a prankster than Sirius. Bubble likes to play with Mist, but sometimes pranks her. Bubble puts paint inside of the shower heads, and steals Meru's guns. She also throws peanuts at Manemos, and loves to ride her unicycle and eat cake at the same time. She also throws walnuts at Manemos who throw peanuts back at her. Bubble loves cashew nuts, so she never throws them. Even Sirius can't catch up to her.
+
+Heles is the twin of Reverse. They brought Shirottori- and Flame to Manemo Land by spinning around in circles. Heles was bored so she started spinning, and she bumped into Reverse, who also started spinning. Suddenly they arrived in the beatiful white world.
+
+Reverse is the twin of Heles. Reverse follows after Heles all the time, even to weird places such as a bar that Heles went to.
+
+Haru is the child of Meru and Heather. She likes to play, but usually likes to play alone.
+
+Kiwi is the child of Snow and Calipi. Unlike Calipi, she does not know how to fight. She likes to read quietly.
 
 Flame once lived in a beatiful white world, along with a Manemo named Shirottori- (White Bird). Flame was brought to the Crystal tower by Heles and Reverse. Obsidian was Flame's spirit when she was sent to heaven.
