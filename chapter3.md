@@ -64,7 +64,7 @@ Pattern and the prince were laughing.
 
 Snow was staring at Matt and Sansei.
 
-The wedding had started. Everyone was smiling, eating, talking with Matt and Sansei, or playing with Snow. The food was very delicious. Everyone was talking, and since every Manemo besides the bad Manemos came, it was very loud, but in a good way. Matt gave Sansei a pure diamond and gold ring. Sansei's dress was tinted with gold leaf, so the ring was perfect. And it was.
+The wedding had started. Everyone was smiling, eating, talking with Matt and Sansei, or playing with Snow and Kacchan. The food was very delicious. Everyone was talking, and since every Manemo besides the bad Manemos came, it was very loud, but in a good way. Matt gave Sansei a pure diamond and gold ring. Sansei's dress was tinted with gold leaf, so the ring was perfect. And it was.
 
 Soon the wedding had ended. Everyone was going back home when Sansei brought a Manemo named Star. Earon and Wisteria knew who Star was. She was the godess of stars. She was one of the gods and godesses of Manemo Land. She had a black skirt. She told them that she saw strange objects floating in the sky. Everyone in the crystal tower, along with Star, went to see the objects.
 
@@ -78,4 +78,8 @@ Soon the wedding had ended. Everyone was going back home when Sansei brought a M
 
 "Hello. Where are your parents? Why do you have blood in your hair? Why do you have a gem on your head? Why do you have a dagger knife in your hand?" asked Matt.
 
-"I don't have any parents. My parents gave me this knife, for 'cooking'. I didn't know how to cook. So instead I used this to fight." said Calipi. Everyone was scared of Calipi. "As long as you don't fight me, I won't fight you back." said Calipi.
+"I don't have any parents. My parents gave me this knife, for 'cooking'. I didn't know how to cook. So instead I used this to fight." said Calipi. Everyone was scared of Calipi. "As long as you don't fight me, I won't fight you." said Calipi.
+
+Everyone soon understood that Calipi was scared too, and that was why she had a knife.
+
+"Calipi. It's okay." said Matt. "You don't have to be scared." said Sansei. Calipi dropped the knife on the ground, and Matt buried it into the ground.
