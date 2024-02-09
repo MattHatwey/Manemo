@@ -102,7 +102,7 @@ Meru loved guns. He would love to look cool, and attracted many girls. He would 
 
 Mist was a very kind Manemo. She liked to help Sansei, and play with her siblings. But when Meru would tease her, she started a big fight with Meru, and they would fight for 2 hours minimum.
 
-Aves was a Manemo who came from a different planet. He was the first signs of Mirds(Manemo Birds). Soon the species was created, using Aves' magic. He also liked Esper.
+Aves was a Manemo who came from a different place. He was the first sign of Mirds(Manemo Birds). Soon the species was created, using Aves' magic. He also liked Esper.
 
 Esper was best friends with Aves. Esper and Crystal ran a Boba Tea place named Bubble Lake Boba. Crystal and Esper are considered the best siblings of all time.
 
