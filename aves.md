@@ -27,3 +27,9 @@ Suddenly I was captured back into the cell.
 "Thank you." said I.
 
 Maybe she wasn't as mean as I thought.
+
+I lived here for the rest of my life. 
+
+I was staring at Manemos and saying hi to them when suddenly a Manemo came up to me.
+
+"Would you like to live in the Crystal tower?"
