@@ -1,5 +1,5 @@
 
 
-Gender: ♂♀
+Gender: ♂
 
 Type: BO
