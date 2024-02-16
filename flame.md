@@ -2,4 +2,4 @@
 
 Gender: ♀
 
-Type: BO
+Type: B
