@@ -6,6 +6,9 @@ I decided to prank Manemos in the house because I was bored. My twin sister, Sir
 
 Soon we were called the pranksters. But sometimes Manemos would call me the Chaos Queen! I loved it!
 
+I also love throwing peanuts at Manemos. They got mad and threw them back at me. I threw walnuts at them!
+
+I will never throw a cashew nut though. I love those!
 
 Gender: ♀
 
