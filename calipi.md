@@ -2,4 +2,4 @@
 
 Gender: ♀
 
-Type: A
+Type: AO
