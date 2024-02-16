@@ -35,3 +35,11 @@ I was staring at Manemos and saying hi to them when suddenly a Manemo came up to
 "Would you like to live in the Crystal tower?"
 
 "Yes!" said I.
+
+Gender:
+
+Born:
+
+Type:
+
+Birthday:
