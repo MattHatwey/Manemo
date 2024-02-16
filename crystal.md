@@ -1,1 +1,5 @@
 
+
+Gender: ♀
+
+Type: O
