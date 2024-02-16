@@ -1,4 +1,4 @@
-♀Aves
+Aves
 
 I woke up one day. I feel like I haven't opened my eyes in so long. I am in a jungle. I don't see anyone here though. Maybe they went to get some food for me? I don't know. But I don't like this place. It's too hot here. So I decided to go somewhere else. I wonder where I'll end up.
 
