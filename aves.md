@@ -36,10 +36,10 @@ I was staring at Manemos and saying hi to them when suddenly a Manemo came up to
 
 "Yes!" said I.
 
-Gender:
+Gender: ♀♂
 
-Born:
+Born: 
 
-Type:
+Type: 
 
-Birthday:
+Birthday: 
