@@ -1,3 +1,5 @@
+Crystal
+
 I was born in a warm room. It was a little cold, and the sun was partly covered by the clouds.
 
 I felt like an ordinary Manemo.
