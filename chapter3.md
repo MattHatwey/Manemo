@@ -2,7 +2,7 @@
 
 "...Good Morning..." said everyone. "The wedding will be in 4 days, on Christmas." said the prince. Prince was going to go with Pattern to the wedding, so he didn't have the time to make a surprise wedding with the others. "What was that strange object you were talking about yesterday?" asked Matt. "I'll show you!" said Hatwey and Honest. Get dressed if you want to come!" said Honest. Everyone got dressed. Sansei decided to watch the eggs.
 
-"It's not far from here." said Hatwey. "You can already see it!" said Honest. "We've arrived!" said Earon and Wisteria. "What is this?" said Matt. "It's an old-fashioned teleporter system." said Sansei. In present Manemo Land, teleporters were very common and had a similar shape to telephone boxes. But instead of calling someone, you could teleport to their houses or anywhere else in the world. But in the past, you were supposed to use a rope hanging down from the ancient tree. "There's a hole where you're supposed to swing below. I don't think this hole is supposed to be here." said Honest.
+"It's not far from here." said Hatwey. "You can already see it!" said Honest. "We've arrived!" said Earon and Wisteria. "What is this?" said Matt. "It's an old-fashioned teleporter system." said Honest. In present Manemo Land, teleporters were very common and had a similar shape to telephone boxes. But instead of calling someone, you could teleport to their houses or anywhere else in the world. But in the past, you were supposed to use a rope hanging down from the ancient tree. "There's a hole where you're supposed to swing below. I don't think this hole is supposed to be here." said Honest.
 
 "You're right!" said someone. "Who's what?" said everyone. "TIME TO BATTLE!" said Odd. There were more robots than before. The same bad Manemo that was in the carriage was standing there next to Odd and Even. "They're too strong. The wind is causing chaos in the Manemo Mainlands!" said Matt. "What do you mean Manemo Mainlands, Matt? You never use that to call our area." said Hatwey. "Hatwey, it's because it's only causing chaos around the good Manemos' territory." said Honest.
 
@@ -32,7 +32,7 @@ Ichigo, Choco, Honest, Hatwey, Rainflower, Earon, and Wisteria split into groups
 
 "...Did you call us?" 
 
-"Tiramisu? Creamy? Ai? Con? Kuzu-kun? Waffle? Pancake? Onpu-rin?" said Earon. "Wait, I thought Onpu-rin (Onpu means note) was that popular music artist!" said Wisteria. "If you say Onpu-rin, it sounds like you're saying On-Purin (Purin means pudding), so I started making music and cook!" said Onpurin. "Okay, We'll call you Onpurin from now on! We also want you to make some food for Matt and Sansei's wedding, secretly." said Earon and Wisteria. "Sounds good!" said Onpurin and the members of 'Harvest Time!'.
+"Tiramisu? Creamy? Ai? Con? Kuzu-kun? Waffle? Pancake? Onpu-rin?" said Earon. "Wait, I thought Onpu-rin (Onpu means note) was that popular music artist!" said Wisteria. "If you say Onpu-rin, it sounds like you're saying On-Purin (Purin means pudding), so I started making music and cooking!" said Onpurin. "Okay! We also want you to make some food for Matt and Sansei's wedding, secretly." said Earon and Wisteria. "Sounds good!" said Onpurin and the members of 'Harvest Time!'.
 
 Over at the store, Ichigo and Choco were buying decorations and flowers. "We also need two baskets!" said Ichigo. "Yeah! We bought all the decorations, so all we have to buy now is two baskets and flowers." said Wisteria. 1 hour passed. Ichigo and Choco were done shopping. When Ichigo and Choco looked at their reciept, they were shocked because it was only 10 dollars. They had calculated how much it would cost and it was about 250 dollars, plus more for some impulse buying. In total, they had more than 300 dollars. Ichigo and Choco bought way more than they expected and they thought it would be over 300 dollars. But it was 10 dollars! 
 
@@ -121,3 +121,37 @@ Haru is the child of Meru and Heather. She likes to play, but usually likes to p
 Kiwi is the child of Snow and Calipi. Unlike Calipi, she does not know how to fight. She likes to read quietly.
 
 Flame once lived in a beatiful white world, along with a Manemo named Shirottori- (White Bird). Flame was brought to the Crystal tower by Heles and Reverse. Obsidian was Flame's spirit when she was sent to heaven.
+
+One day, Rainflower made her own breakfast and ate by herself. 
+
+"What happened?" asked Matt and the others
+
+"..." said Rainflower.
+
+"She wants to go to Neptune!" said Haru.
+
+"..!" 
+
+"Oh." said Matt.
+
+"..." 
+
+"I'm sorry about forgetting your plan to go to Neptune to restore it. After that we went to practice our magic, and then I went inside of the mirror, then we went to the wedding, then we made kids, and..." said Matt.
+
+"THEN LET'S JUST GO NOW!" said Rainflower.
+
+"Okay!" said Matt and the others.
+
+"...So we need special gas masks..." said Matt.
+
+"How about this?" said Bubble. She made a Bubble with her magic, and put it on her head. She made another around her whole body, overlapping the head Bubble. Sirius put metal polish that she got from somewhere all over Bubble's head. Nothing happened to Bubble. "WOW!" said everyone. Bubble made bubbles for everyone. "Now we need a rocket." Everyone did not know how to make a rocket. Even Honest did not know how to make one. Calipi asked Honest to make a large piece of metal. Then she started denting the metal, making the shape of the rocket. She made a nice looking rocket. Snow was now inspired to finish making it. He started fixing some over-dented areas, and added interior. It was done. At this stage of the rocket, everyone was thinking about the fire. Then they all looked at Flame and Hatwey. Everyone brought the rocket outside, and Flame and Hatwey launched the rocket. Honest used magic to stop it from launching immediatly. Everyone brought snacks and food and pillows and blankets. There was a built in shower in the bathroom too. Everyone went in, and before they launched the rocket, Bubble covered the area where the fire was with a bubble.
+
+3...
+
+2...
+
+1...
+
+LAUNCH!!!!!!!!!
+
+Every good Manemo watched as the rocket launched.
