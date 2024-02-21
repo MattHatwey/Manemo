@@ -200,7 +200,7 @@ He knew magic still existed. Not only the Bad Manemos, but good Manemos too.
 For now, there were only two territories.
 
   Matt, Sansei, Honest, and Hatwey had been living in the Crystal Tower for 2 years.
-Matt was 15, Sansei was 8, Hatwey was 2, and Honest was 5 years old.
+Matt was 14, Sansei was 11, Hatwey was 9, and Honest was 10 years old.
   They wanted to explore Manemo Land, so they decided to.
 
 Matt, Sansei, Hatwey, Honest have been adventuring for an hour now.
@@ -259,7 +259,7 @@ Matt was thinking for so long that even Sansei and Ichigo's conversation ended.
   Suddenly, Matt, Sansei, Hatwey, and Honest saw a Manemo.
 “Who are you?” said the Manemo.
 “I’m Matt, this is Sansei, Honest, and Hatwey.
-“I’m Rainflower. I was born here. I’m 6 years old.” said Rainflower.
+“I’m Rainflower. I was born here. I’m 10 years old.” said Rainflower.
 
   Matt, Sansei, Honest, and Hatwey had been adventuring for 1 month.
 “We should go back to Crystal Tower. It’s been a long time since we were there and I think it’ll take more than a week to get back home.” said Sansei and Hatwey.
@@ -330,7 +330,7 @@ While Matt and the others were returning to Crystal Tower, they heard a Manemo a
 "...Hello...?" 
 
 "Are you-..." said Matt.
-"It has been a while since i've met you." said Pattern.
+"It has been a while since I've met you." said Pattern.
   “Prince?” said Kingdarudo.
 “Are you the real Prince?” said Queendarudo.
 “Yes. I have been living in the Ancient Forest.” said the Prince.
