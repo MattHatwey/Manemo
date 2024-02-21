@@ -6,6 +6,8 @@ Snow would be near me when I wanted his help, and he loved to buy me snacks and 
 
 I was once sent to heaven because I was considered a 'mistake'. I did not want to leave Pink and Snow alone. I had kept all of these secrets with them, so I sent a new Manemo named Obsidian. He can hear my voice, he can feel the pain that I feel, but I could also hear his voice, and his pain. We had a connection. Pink liked Obsidian, and so did Snow.
 
+Soon I was sent back to the crystal tower. Luckily, Obsidian hadn't replaced me. Now Pink and Obsidian were married. Snow had me and Obsidian and Kiwi and Calipi now.
+
 Gender: ♀
 
 Type: B
