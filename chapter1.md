@@ -13,7 +13,7 @@ Pattern woke up. It is the middle of night. "...Just a dream..." Pattern muttere
 
 "...I am real."
 
-"Wait what? said Pattern. Arabelle is still asleep.
+"Wait what?" said Pattern. Arabelle is still asleep.
 
 "...Let's make an egg."
 
