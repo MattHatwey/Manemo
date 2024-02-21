@@ -66,8 +66,7 @@ After he told his friends that he has the power of evil, his friends got scared 
 He felt lonely. He lay down and kept on having a dream of an egg he found in the middle of the war and was with the egg and then he thought that the egg was near. He thought for a minute..
 Then he knew exactly where it was.
 
-   He found the egg. There was a crack
-“Finally.” said Matt.
+   He found the egg. There was a crack. “Finally.” said Matt.
 They were together until he noticed that Kingdarudo and Queendarudo were looking at him.
   But he felt safe.
 He rang the bell and Kingdarudo and Queendarudo let him in.
@@ -77,7 +76,7 @@ He rang the bell and Kingdarudo and Queendarudo let him in.
 Matt asked them to help him, and they said yes.
 One Manemo was holding the egg.
   Before, Matt tried to ask his old friends to help, but they didn’t really want to and their boss said “no!” to them, so they didn’t help.
-  The King and Queen of the Bad Manemos used to be good Manemos until they were knocked into a volcano by good Manemos. The good Manemos didn’t like the King and Queen and accidentally made them into Bad Manemos. The King and Queen were Hatwey’s mother and father, also known as Old Kingdarudo and Old Queendarudo.
+  The King and Queen of the Bad Manemos used to be good Manemos until they were knocked into a volcano by good Manemos. The good Manemos didn’t like the Old Kingdarudo and Old Queendarudo and accidentally made them into Bad Manemos. 
   They killed a lot of good Manemos and somehow turned them into bad manemos.
 
   Matt tried to stop the bad Manemos, and the two manemos were scared.
