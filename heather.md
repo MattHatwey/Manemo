@@ -2,7 +2,7 @@ Heather
 
 I woke up in a dark room. I quickly figured out how to exit my room, but I couldn't figure out how to get outside of the house. I found a note that said 'we are going to vacation to pluto. -mom ' I thought my parents were crazy. There was a war going on in Pluto. Even I could tell. I gave up very quickly trying to find an exit. 
 
-I found a calendar. It had a single red dot on April 16th. Later I found a clock that said April 17, .
+I found a calendar. On the cover it said 2024 CALENDAR. It had a single red dot on April 16th. Later I found a clock that said Wednesday, April 17. Under that, it said 1:03AM.
 
 I was stuck in the dark room until one day, I heard the door open. I ran toward the exit, expecting my parents. I was so excited to meet them for the first time. I was getting closer to the exit. I jumped and hugged my dad... or so I thought. 
 
