@@ -46,6 +46,14 @@ Matt and Sansei’s Friends
 
 -Rainflower (Born:2005/4/6 Age:19
 
+-Ichigo (Born:2010/1/5 Age:14
+
+-Earon (Born:2010/12/16 Age:14
+
+-Choco (Born:2010/2/14 Age:14
+
+-Wisteria (Born:2010/12/5 Age:14
+
 -F.S. (Born:2010/3/29 Age:14
 
 -Truth (Born:2005/8/6 Age:19
