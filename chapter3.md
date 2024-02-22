@@ -155,3 +155,6 @@ One day, Rainflower made her own breakfast and ate by herself.
 LAUNCH!!!!!!!!!
 
 Every good Manemo watched as the rocket launched.
+
+"Wow! This is amazing!" said Matt and the others.
+
