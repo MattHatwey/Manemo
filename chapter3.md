@@ -90,6 +90,8 @@ After Matt and the others arrived home, Sansei and Matt decided that they were g
 
 For the next 12 years, Matt and Sansei made many children. Kacchan was already 13, and Matt and Sansei found a few lost kids, and all of them wanted to live in the Crystal tower. 
 
+-2037-
+
 "I'm bored." said Heles, after playing in the park for 1 hour. "Me too." said Reverse. 
 
 Heles started spinning around as fast as she could. Heles bumped into Reverse, and Reverse started spinning. "I. am..dizzy...!" said Reverse. "..M.e...too!" said Heles. "I.can't..sto.p!" said Heles. "Me..too.!.." said Reverse. 1 hour later, their head became blank. "I don't feel dizzy!" said Reverse and Heles. "Let's try to spin as fast as we can!" said Heles.
@@ -163,6 +165,8 @@ Shirottori- also came in. He had greeted the kids first. Everyone was interested
 "Hello. I am Shirottori- from the Snow Palace. Thank you for rescuing us." said Shirottori-.
 
 "What do you mean rescue?" said Flame. Shirottori- whispered something to Flame. Flame smiled but at the same time looked like she was crying.
+
+-2038-
 
 "I'm bored..." said everyone in the Crystal tower. "How about we seperate into groups to have fun?" asked Bubble, Heles, Crystal, Meru, and Matt. "Okay." said everyone else.
 
