@@ -8,35 +8,35 @@ Matt’s Family (2024/1)
 
 -Kacchan (Born:2022/6/6 Age:1
 
--Obsidian (Born:2023/9/30 Age:0
+-Obsidian (Born:2022/9/30 Age:1
 
--Snow (Born:2023/12/21 Age:0
+-Snow (Born:2022/12/21 Age:1
 
--Heather (Born:2024/4/16 Age:
+-Heather (Born:2023/4/16 Age: 
 
--Meru (Born:2024/7/12 Age:
+-Meru (Born:2023/7/12 Age: 
 
--Mist (Born:2024/7/12 Age:
+-Mist (Born:2023/7/12 Age:
 
--Aves (Born:2026/5/11 Age:
+-Aves (Born:2025/5/11 Age:
 
--Esper (Born:2026/11/22 Age:
+-Esper (Born:2025/11/22 Age:
 
--Crystal (Born:2027/3/20 Age:
+-Crystal (Born:2026/3/20 Age:
 
--Sirius (Born:2030/6/30 Age:
+-Sirius (Born:2028/6/30 Age:
 
--Bubble (Born:2030/6/30 Age:
+-Bubble (Born:2028/6/30 Age:
 
--Heles (Born:2031/9/7 Age:
+-Heles (Born:2029/9/7 Age:
 
--Reverse (Born:2031/9/7 Age:
+-Reverse (Born:2029/9/7 Age:
 
--Haru (Born:2034/3/15 Age:
+-Haru (Born:2032/3/15 Age:
 
--Kiwi (Born:2034/8/8 Age:
+-Kiwi (Born:2032/8/8 Age:
 
--Flame (Born:2034/10/10 Age:
+-Flame (Born:2032/10/10 Age:
 
 Matt and Sansei’s Friends
 
