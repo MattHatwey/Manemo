@@ -188,39 +188,39 @@ After playing for 6 hours, they went back to the Crystal tower with game prizes,
 
 -
 
-Calipi usually was in the Crystal tower. She didn't like attention from Manemos she didn't know. The only times she would go out was when she needed to buy food from the grocery. 
+Calipi usually was in the Crystal tower. She didn't like attention from Manemos she didn't know. The only times she would go out was when she needed to buy food from the grocery. 13
 
-Kacchan seemed to have a completly different life hidden from her family. Kacchan's actual name was Pink, and she was one of the popular idols of Manemo Land. 'Peekaboo IdoLz' was the name of the group she was in. It was a group of Lemon, who is a peekaboo(peekaboo is a type of bird),Mirage, and Pink. Mirage and Kacchan(Pink) were friends since elementary school. Pink had no friends. But she loved to dance. One day, a girl named Mirage sat next to her. Mirage was new at the school. They loved to dance. Pink brought a idol uniform to school, and so did Mirage. They would escape from school by climbing the fence(keep in mind that these two were still 7). They would go to big concerts, and would dance. They were always told that they weren't allowed inside, but they didn't care. Soon many Mirage and Pink had many fans. And 7 years later, they named their group 'Peekaboo IdoLz' because a peekaboo named Lemon joined and named the group. Everyone immediatly got used to Lemon in Pink and Mirage's live concert. A lot of Manemos were fans of Lemon, too. Kacchan also loves flame and Obsidian, and married Obsidian.
+Kacchan seemed to have a completly different life hidden from her family. Kacchan's actual name was Pink, and she was one of the popular idols of Manemo Land. 'Peekaboo IdoLz' was the name of the group she was in. It was a group of Lemon, who is a peekaboo(peekaboo is a type of bird),Mirage, and Pink. Mirage and Kacchan(Pink) were friends since elementary school. Pink had no friends. But she loved to dance. One day, a girl named Mirage sat next to her. Mirage was new at the school. They loved to dance. Pink brought a idol uniform to school, and so did Mirage. They would escape from school by climbing the fence(keep in mind that these two were still 7). They would go to big concerts, and would dance. They were always told that they weren't allowed inside, but they didn't care. Soon many Mirage and Pink had many fans. And 7 years later, they named their group 'Peekaboo IdoLz' because a peekaboo named Lemon joined and named the group. Everyone immediatly got used to Lemon in Pink and Mirage's live concert. A lot of Manemos were fans of Lemon, too. Kacchan also loves flame and Obsidian, and married Obsidian. 13
 
-Obsidian was a mysterious Manemo. He was the spirit of Flame, the youngest Manemo in Matt's family. Obsidian was summoned by the gods after Flame was sent to heaven one day. He married Kacchan.
+Obsidian was a mysterious Manemo. He was the spirit of Flame, the youngest Manemo in Matt's family. Obsidian was summoned by the gods after Flame was sent to heaven one day. He married Kacchan. 12
 
-Snow loved to go outside, and feel the cool breeze. He liked Obsidian, who first appeared when Snow was 9. Snow also liked Flame. After 12 years, Snow still loves Calipi more than anyone in the world, and when he comes back home for dinner, Calipi would always wait in the entrance of the crystal tower. They even made a kid named Kiwi, who was two. 
+Snow loved to go outside, and feel the cool breeze. He liked Obsidian, who first appeared when Snow was 9. Snow also liked Flame. After 12 years, Snow still loves Calipi more than anyone in the world, and when he comes back home for dinner, Calipi would always wait in the entrance of the crystal tower. They even made a kid named Kiwi, who was two. 12
 
-Heather loves Meru. Heather's life was saved by Meru when she was born in a dark house abandoned by her parents. Meru and Heather made a kid named Haru.
+Heather loves Meru. Heather's life was saved by Meru when she was born in a dark house abandoned by her parents. Meru and Heather made a kid named Haru. 12
 
-Meru loved guns. He would love to look cool, and attracted many girls. He would fight until his guns broke(he has 27 guns so far). He was actually very kind, but loved to tease his twin, Mist. One time Meru tried to shoot Mist when Mist stole 9 of his precious guns. Meru also loves a cute girl named Heather. Meru and Heather made a kid named Haru.
+Meru loved guns. He would love to look cool, and attracted many girls. He would fight until his guns broke(he has 27 guns so far). He was actually very kind, but loved to tease his twin, Mist. One time Meru tried to shoot Mist when Mist stole 9 of his precious guns. Meru also loves a cute girl named Heather. Meru and Heather made a kid named Haru. 12
 
-Mist was a very kind Manemo. She liked to help Sansei, and play with her siblings. But when Meru would tease her, she started a big fight with Meru, and they would fight for 2 hours minimum.
+Mist was a very kind Manemo. She liked to help Sansei, and play with her siblings. But when Meru would tease her, she started a big fight with Meru, and they would fight for 2 hours minimum. 12
 
-Aves was a Manemo who came from a different place. He was the first sign of Mirds(Manemo Birds). Soon the species was created, using Aves' magic. He also liked Esper.
+Aves was a Manemo who came from a different place. He was the first sign of Mirds(Manemo Birds). Soon the species was created, using Aves' magic. He also liked Esper. 10
 
-Esper was best friends with Aves. Esper and Crystal ran a Boba Tea place named Bubble Lake Boba. Crystal and Esper are considered the best siblings of all time.
+Esper was best friends with Aves. Esper and Crystal ran a Boba Tea place named Bubble Lake Boba. Crystal and Esper are considered the best siblings of all time. 10
 
-Crystal loves Esper. Crystal does everything with Esper. She has special Crystal-related powers.
+Crystal loves Esper. Crystal does everything with Esper. She has special Crystal-related powers. 9
 
-Sirius is the twin of Bubble. Sirius is a prankster. She loves to surprise Manemos suddenly by jump scaring them, or suddenly splashing them with water. Sirius likes to play with Mist.
+Sirius is the twin of Bubble. Sirius is a prankster. She loves to surprise Manemos suddenly by jump scaring them, or suddenly splashing them with water. Sirius likes to play with Mist. 7
 
-Bubble is the twin of Sirius. She is chaotic and even more of a prankster than Sirius. Bubble likes to play with Mist, but sometimes pranks her. Bubble puts paint inside of the shower heads, and steals Meru's guns. She also throws peanuts at Manemos, and loves to ride her unicycle and eat cake at the same time. She also throws walnuts at Manemos who throw peanuts back at her. Bubble loves cashew nuts, so she never throws them. Even Sirius can't catch up to her.
+Bubble is the twin of Sirius. She is chaotic and even more of a prankster than Sirius. Bubble likes to play with Mist, but sometimes pranks her. Bubble puts paint inside of the shower heads, and steals Meru's guns. She also throws peanuts at Manemos, and loves to ride her unicycle and eat cake at the same time. She also throws walnuts at Manemos who throw peanuts back at her. Bubble loves cashew nuts, so she never throws them. Even Sirius can't catch up to her. 7
 
-Heles is the twin of Reverse. They brought Shirottori- and Flame to Manemo Land by spinning around in circles. Heles was bored so she started spinning, and she bumped into Reverse, who also started spinning. Suddenly they arrived in the beatiful white world.
+Heles is the twin of Reverse. They brought Shirottori- and Flame to Manemo Land by spinning around in circles. Heles was bored so she started spinning, and she bumped into Reverse, who also started spinning. Suddenly they arrived in the beatiful white world. 6
 
-Reverse is the twin of Heles. Reverse follows after Heles all the time, even to weird places such as a bar that Heles went to.
+Reverse is the twin of Heles. Reverse follows after Heles all the time, even to weird places such as a bar that Heles went to. 6
 
-Haru is the child of Meru and Heather. She likes to play, but usually likes to play alone.
+Haru is the child of Meru and Heather. She likes to play, but usually likes to play alone. 3 
 
-Kiwi is the child of Snow and Calipi. Unlike Calipi, she does not know how to fight. She likes to read quietly.
+Kiwi is the child of Snow and Calipi. Unlike Calipi, she does not know how to fight. She likes to read quietly. 3
 
-Flame once lived in a beatiful white world, along with a Manemo named Shirottori- (White Bird). Flame was brought to the Crystal tower by Heles and Reverse. Obsidian was Flame's spirit when she was sent to heaven.
+Flame once lived in a beatiful white world, along with a Manemo named Shirottori- (White Bird). Flame was brought to the Crystal tower by Heles and Reverse. Obsidian was Flame's spirit when she was sent to heaven. 3
 
 One day, Rainflower made her own breakfast and ate by herself. 
 
