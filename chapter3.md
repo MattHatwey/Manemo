@@ -90,7 +90,7 @@ After Matt and the others arrived home, Sansei and Matt decided that they were g
 
 For the next 12 years, Matt and Sansei made many children. Kacchan was already 13, and Matt and Sansei found a few lost kids, and all of them wanted to live in the Crystal tower. 
 
--2037-
+-2035-
 
 "I'm bored." said Heles, after playing in the park for 1 hour. "Me too." said Reverse. 
 
@@ -154,7 +154,7 @@ This time it was faster for Heles and Reverse to make their head blank.
 
 "Me either!" said Flame.
 
-Soon they arrived back in the dry field where they started spinning. It had been 5 hours now, so they bought some food and came back home. 
+Soon they arrived back in the dry plain where they started spinning. It had been 5 hours now, so they bought some food and came back home. 
 
 "I'm Flame!" said Flame.
 
@@ -166,7 +166,53 @@ Shirottori- also came in. He had greeted the kids first. Everyone was interested
 
 "What do you mean rescue?" said Flame. Shirottori- whispered something to Flame. Flame smiled but at the same time looked like she was crying.
 
--2038-
+--
+
+"Heather!" said Meru, in his pure and kind attitude. Heather smiled at Meru. Heather and Meru were walking to the usual dry plain where Meru would pose and attract girls.
+
+After Meru was done with THAT, Meru said something.
+
+"Would you like to marry me?" said Meru.
+
+"YES!" said Heather. Heather used her magic and Meru's magic to make an egg. "We aren't as strong as Matt or Sansei. I hope she will be a lively kid.
+
+The next day, the egg cracked. Then came a baby Manemo.
+
+"Hi, Heather!" said Meru. Heather looked at the Manemo and said "Hello, Heather!"
+
+"We should name her Haru!" said Meru and Heather.
+
+Haru was very lively infront of her favorite Manemos, but usually very calm.
+
+Instead of going to a proper wedding, they spun around to go to heaven (the place that Heles and Reverse went to)
+
+They walked around into the town, the Manemos there greeted Meru and Heather
+
+--
+
+"I have to go to heaven." said Flame, again, to Matt and Sansei.
+
+"I was supposed to be in heaven, which is why Shirottori- whispered something to me a few years back." said Flame.
+
+Matt and Sansei were shocked.
+
+"Even Shirottori- went back." said Flame.
+
+"Thank you for the memories." said Flame.
+
+Flame ran towards the door and before she opened it she dissapeared.
+
+Soon after, a boy was found by Snow. His name was Obsidian, and he told us he didn't know who he was. Kacchan saw Obsidian and thought he was very cute. Kacchan liked Flame, and so did Snow. They soon realized what happpened to her. Then everyone in the Crystal tower knew who Obsidian was. Obsidian was Flame's spirit.
+
+Obsidian liked Kacchan too. Kacchan and Obsidian decided to marry each other.
+
+Obsidian could feel everything Flame felt. Sometimes he felt like he was in a different universe even though he was next to someone. Sometimes you could see Obsidian crying in pain. Whenever someone saw him crying, he would laugh, although it wasn't a happy laugh. It was a sad laugh.
+
+One day, Kacchan saw Obsidian crying. Instead of fake laughing, he just continued crying. Soon Kacchan noticed that Obsidian was crying with joy. Flame was behind him.
+
+Flame ran toward Kacchan. Obsidian also hugged Kacchan. Obsidian had finally his own thoughts. Until now, it was just Flame's mind. Flame apologized but Obsidian didn't mind.
+
+--
 
 "I'm bored..." said everyone in the Crystal tower. "How about we seperate into groups to have fun?" asked Bubble, Heles, Crystal, Meru, and Matt. "Okay." said everyone else.
 
@@ -186,15 +232,15 @@ That crepe was good!" said Kiwi. "Yeah. That ice cream was good too!" said Haru.
 
 After playing for 6 hours, they went back to the Crystal tower with game prizes, candy in their pockets, stuffed toys, and more. Everyone looked surprised.
 
--
+-AS OF 2035-
 
-Calipi usually was in the Crystal tower. She didn't like attention from Manemos she didn't know. The only times she would go out was when she needed to buy food from the grocery. 13
+Calipi usually was in the Crystal tower. She didn't like attention from Manemos she didn't know. The only times she would go out was when she needed to buy food from the grocery. 14
 
-Kacchan seemed to have a completly different life hidden from her family. Kacchan's actual name was Pink, and she was one of the popular idols of Manemo Land. 'Peekaboo IdoLz' was the name of the group she was in. It was a group of Lemon, who is a peekaboo(peekaboo is a type of bird),Mirage, and Pink. Mirage and Kacchan(Pink) were friends since elementary school. Pink had no friends. But she loved to dance. One day, a girl named Mirage sat next to her. Mirage was new at the school. They loved to dance. Pink brought a idol uniform to school, and so did Mirage. They would escape from school by climbing the fence(keep in mind that these two were still 7). They would go to big concerts, and would dance. They were always told that they weren't allowed inside, but they didn't care. Soon many Mirage and Pink had many fans. And 7 years later, they named their group 'Peekaboo IdoLz' because a peekaboo named Lemon joined and named the group. Everyone immediatly got used to Lemon in Pink and Mirage's live concert. A lot of Manemos were fans of Lemon, too. Kacchan also loves flame and Obsidian, and married Obsidian. 13
+Kacchan seemed to have a completly different life hidden from her family. Kacchan's actual name was Pink, and she was one of the popular idols of Manemo Land. 'Peekaboo IdoLz' was the name of the group she was in. It was a group of Lemon, who is a peekaboo(peekaboo is a type of bird),Mirage, and Pink. Mirage and Kacchan(Pink) were friends since elementary school. Pink had no friends. But she loved to dance. One day, a girl named Mirage sat next to her. Mirage was new at the school. They loved to dance. Pink brought a idol uniform to school, and so did Mirage. They would escape from school by climbing the fence(keep in mind that these two were still 7). They would go to big concerts, and would dance. They were always told that they weren't allowed inside, but they didn't care. Soon many Mirage and Pink had many fans. And 7 years later, they named their group 'Peekaboo IdoLz' because a peekaboo named Lemon joined and named the group. Everyone immediatly got used to Lemon in Pink and Mirage's live concert. A lot of Manemos were fans of Lemon, too. Kacchan also loves flame and Obsidian, and married Obsidian. 14
 
-Obsidian was a mysterious Manemo. He was the spirit of Flame, the youngest Manemo in Matt's family. Obsidian was summoned by the gods after Flame was sent to heaven one day. He married Kacchan. 12
+Obsidian was a mysterious Manemo. He was the spirit of Flame, the youngest Manemo in Matt's family. Obsidian was summoned by the gods after Flame was sent to heaven one day. He married Kacchan. 13
 
-Snow loved to go outside, and feel the cool breeze. He liked Obsidian, who first appeared when Snow was 9. Snow also liked Flame. After 12 years, Snow still loves Calipi more than anyone in the world, and when he comes back home for dinner, Calipi would always wait in the entrance of the crystal tower. They even made a kid named Kiwi, who was two. 12
+Snow loved to go outside, and feel the cool breeze. He liked Obsidian, who first appeared when Snow was 9. Snow also liked Flame. After 12 years, Snow still loves Calipi more than anyone in the world, and when he comes back home for dinner, Calipi would always wait in the entrance of the crystal tower. They even made a kid named Kiwi, who was two. 13
 
 Heather loves Meru. Heather's life was saved by Meru when she was born in a dark house abandoned by her parents. Meru and Heather made a kid named Haru. 12
 
