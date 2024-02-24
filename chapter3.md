@@ -90,6 +90,80 @@ After Matt and the others arrived home, Sansei and Matt decided that they were g
 
 For the next 12 years, Matt and Sansei made many children. Kacchan was already 13, and Matt and Sansei found a few lost kids, and all of them wanted to live in the Crystal tower. 
 
+"I'm bored." said Heles, after playing in the park for 1 hour. "Me too." said Reverse. 
+
+Heles started spinning around as fast as she could. Heles bumped into Reverse, and Reverse started spinning. "I. am..dizzy...!" said Reverse. "..M.e...too!" said Heles. "I.can't..sto.p!" said Heles. "Me..too.!.." said Reverse. 1 hour later, their head became blank. "I don't feel dizzy!" said Reverse and Heles. "Let's try to spin as fast as we can!" said Heles.
+
+"Where is this...?"
+
+"Here is...."
+
+"....?" 
+
+Heles and Reverse woke up to see a white landscape. 
+
+"WOW!" said Reverse and Heles.
+
+"It's cold here." said Reverse. "Yeah. I see a hollow tree over there. Let's go!" said Heles. The inside of the tree was quite warm. "I'm getting some leaves to block the entrance." said Reverse. "Okay!" said Heles.
+
+"...REVERSE!!!" said Heles. "What?" said Reverse. Reverse walked outside of the log. They saw the sky was getting darker, and as it got darker, they saw a faint light glowing.
+
+"...Wow..." said Reverse. "...Wait!!" said Reverse. Heles had started running toward the lights.
+
+"..." said Heles. 
+
+"..." said Reverse.
+
+They were in a small town. Manemos were walking around, placing lanterns. One tall Manemo walked towards us.
+
+"My name is Shirottori-. It is getting cold outside, so please come in my house.
+
+"...Thank you, but..." said Reverse. "But there is a little Manemo outside!" said Heles. "Really? I'll go check on them." said Shirottori-.
+
+"HELLO!!!!!!!! YOU'RE HELES AND REVERSE RIGHT!?" said the small Manemo. It was the same little Manemo that was outside. Shirottori- was chasing after her.
+
+"Who are you?" asked Heles and Reverse. 
+
+"I'm Flame!" said the little Manemo.
+
+"Wait... Are you the from the Crystal tower?!" asked Shirottori-.
+
+"Yeah!" said Reverse and Heles.
+
+"Why not come to the Crystal tower?" asked Heles.
+
+"Yes!" said Shirottori- and Flame. "But how?" said Shirottori-.
+
+"Spin around!!!" said Heles.
+
+Reverse and Heles started spinning around. This time it wasn't as chaotic. Flame also started spinning, and bumped into Shirottori-. 
+
+"...Are.you..di..zzy...?" said Heles. 
+
+"...K..ind.of!" said Reverse.
+
+"Me...to..o.." said Shirottori- and Flame.
+
+This time it was faster for Heles and Reverse to make their head blank.
+
+"Not dizzy anymore!" said Heles and Reverse.
+
+"I don't feel dizzy either." said Shirottori-.
+
+"Me either!" said Flame.
+
+Soon they arrived back in the dry field where they started spinning. It had been 5 hours now, so they bought some food and came back home. 
+
+"I'm Flame!" said Flame.
+
+"Welcome to the Crystal tower!" said Sansei, Matt, and Mist, who was helping Sansei with making dinner.
+
+Shirottori- also came in. He had greeted the kids first. Everyone was interested in Shirottori-.
+
+"Hello. I am Shirottori- from the Snow Palace. Thank you for rescuing us." said Shirottori-.
+
+"What do you mean rescue?" said Flame. Shirottori- whispered something to Flame. Flame smiled but at the same time looked like she was crying.
+
 "I'm bored..." said everyone in the Crystal tower. "How about we seperate into groups to have fun?" asked Bubble, Heles, Crystal, Meru, and Matt. "Okay." said everyone else.
 
 "Looks like we're in a group." said Haru. "I've never really talked to you, or anyone else, but especially you." said Kiwi. "You just talked." said Haru. "I did." said Kiwi. These two are very quiet and boring. Even YOU are getting bored because of these two. "Why do you talk way more in one sentence than when you talk to me?" asked Haru. "I don't know, but I think the same to you." said Kiwi. "To be honest, you're correct." said Haru. "Should we get a drink? Bubble Lake Boba is open." said Kiwi. "Yeah." said Haru. They got a drink. 
@@ -108,17 +182,7 @@ That crepe was good!" said Kiwi. "Yeah. That ice cream was good too!" said Haru.
 
 After playing for 6 hours, they went back to the Crystal tower with game prizes, candy in their pockets, stuffed toys, and more. Everyone looked surprised.
 
-"I'm bored." said Heles, after playing in the park for 1 hour. "Me too." said Reverse. 
-
-Heles started spinning around as fast as she could. Heles bumped into Reverse, and Reverse started spinning. "I. am..dizzy...!" said Reverse. "..M.e...too!" said Heles. "I.can't..sto.p!" said Heles. "Me..too.!.." said Reverse. 1 hour later, their head became blank. "I don't feel dizzy!" said Reverse and Heles. "Let's try to spin as fast as we can!" said Heles.
-
-"Where is this...?"
-
-"Here is...."
-
-"....?" 
-
-Heles and Reverse woke up 
+-
 
 Calipi usually was in the Crystal tower. She didn't like attention from Manemos she didn't know. The only times she would go out was when she needed to buy food from the grocery. 
 
@@ -197,5 +261,3 @@ Every good Manemo watched as the rocket launched.
 Rainflower ran towards the exit. Bubble and Sirius followed. "Rainflower let's play!" said Sirius and Bubble. "Not another prank, right?" said Rainflower. "No!" said Sirius. "Not really!" said Bubble. "Hey!!" "What?" "You ruined the prank." "Not really. It wasn't funny anyway. I was just saying the truth!!!" said Bubble.
 
 "Heles, can we stick to my plan?" asked Reverse. "Nope! Today is no-plan day!" said Heles. "Again?" "Yep!" "Ok...." "Here we go!!!!" said Heles.
-
-"Meru. Let's go explore this island!
