@@ -90,13 +90,45 @@ After Matt and the others arrived home, Sansei and Matt decided that they were g
 
 For the next 12 years, Matt and Sansei made many children. Kacchan was already 13, and Matt and Sansei found a few lost kids, and all of them wanted to live in the Crystal tower. 
 
+"I'm bored..." said everyone in the Crystal tower. "How about we seperate into groups to have fun?" asked Bubble, Heles, Crystal, Meru, and Matt. "Okay." said everyone else.
+
+"Looks like we're in a group." said Haru. "I've never really talked to you, or anyone else, but especially you." said Kiwi. "You just talked." said Haru. "I did." said Kiwi. These two are very quiet and boring. Even YOU are getting bored because of these two. "Why do you talk way more in one sentence than when you talk to me?" asked Haru. "I don't know, but I think the same to you." said Kiwi. "To be honest, you're correct." said Haru. "Should we get a drink? Bubble Lake Boba is open." said Kiwi. "Yeah." said Haru. They got a drink. 
+
+"What flavor did you get?" asked Kiwi and Haru at the same time. Kiwi smiled, Haru smiled, then laughed. So did Kiwi. "I got Melon Kiwi Soda Float." said Kiwi. "I got Haru Fruit Shake." said Haru. They laughed. "Do you love your drink?" said Kiwi. "Yeah." said Haru. "Me too." said Kiwi. Let's go over there next!" said Kiwi and Haru, expecting to say the same location. And they did. "You're smiling!" said Kiwi. "You too!" said Haru.
+
+That crepe was good!" said Kiwi. "Yeah. That ice cream was good too!" said Haru. They went to playgrounds, pools, arcades, food, and more.
+
+"I want to tell you something." said Haru.
+
+"I also want to tell you something." said Kiwi.
+
+"3 2 1" said Haru and Kiwi.
+
+"Thank you!" said Haru and Kiwi.
+
+After playing for 6 hours, they went back to the Crystal tower with game prizes, candy in their pockets, stuffed toys, and more. Everyone looked surprised.
+
+"I'm bored." said Heles, after playing in the park for 1 hour. "Me too." said Reverse. 
+
+Heles started spinning around as fast as she could. Heles bumped into Reverse, and Reverse started spinning. "I. am..dizzy...!" said Reverse. "..M.e...too!" said Heles. "I.can't..sto.p!" said Heles. "Me..too.!.." said Reverse. 1 hour later, their head became blank. "I don't feel dizzy!" said Reverse and Heles. "Let's try to spin as fast as we can!" said Heles.
+
+"Where is this...?"
+
+"Here is...."
+
+"....?" 
+
+Heles and Reverse woke up 
+
 Calipi usually was in the Crystal tower. She didn't like attention from Manemos she didn't know. The only times she would go out was when she needed to buy food from the grocery. 
 
-Kacchan seemed to have a completly different life hidden from her family. Kacchan's actual name was Pink, and she was one of the popular idols of Manemo Land. 'Peekaboo IdoLz' was the name of the group she was in. It was a group of Lemon, who is a peekaboo(peekaboo is a type of bird),Mirage, and Pink. Mirage and Kacchan(Pink) were friends since elementary school. Pink had no friends. But she loved to dance. One day, a girl named Mirage sat next to her. Mirage was new at the school. They loved to dance. Pink brought a idol uniform to school, and so did Mirage. They would escape from school by climbing the fence(keep in mind that these two were still 7). They would go to big concerts, and would dance. They were always told that they weren't allowed inside, but they didn't care. Soon many Mirage and Pink had many fans. And 7 years later, they named their group 'Peekaboo IdoLz' because a peekaboo named Lemon joined and named the group. Everyone immediatly got used to Lemon in Pink and Mirage's live concert. A lot of Manemos were fans of Lemon, too.
+Kacchan seemed to have a completly different life hidden from her family. Kacchan's actual name was Pink, and she was one of the popular idols of Manemo Land. 'Peekaboo IdoLz' was the name of the group she was in. It was a group of Lemon, who is a peekaboo(peekaboo is a type of bird),Mirage, and Pink. Mirage and Kacchan(Pink) were friends since elementary school. Pink had no friends. But she loved to dance. One day, a girl named Mirage sat next to her. Mirage was new at the school. They loved to dance. Pink brought a idol uniform to school, and so did Mirage. They would escape from school by climbing the fence(keep in mind that these two were still 7). They would go to big concerts, and would dance. They were always told that they weren't allowed inside, but they didn't care. Soon many Mirage and Pink had many fans. And 7 years later, they named their group 'Peekaboo IdoLz' because a peekaboo named Lemon joined and named the group. Everyone immediatly got used to Lemon in Pink and Mirage's live concert. A lot of Manemos were fans of Lemon, too. Kacchan also loves flame and Obsidian, and married Obsidian.
 
-Obsidian was a mysterious Manemo. He was the spirit of Flame, the youngest Manemo in Matt's family. Obsidian was summoned by the gods after Flame was sent to heaven one day. 
+Obsidian was a mysterious Manemo. He was the spirit of Flame, the youngest Manemo in Matt's family. Obsidian was summoned by the gods after Flame was sent to heaven one day. He married Kacchan.
 
 Snow loved to go outside, and feel the cool breeze. He liked Obsidian, who first appeared when Snow was 9. Snow also liked Flame. After 12 years, Snow still loves Calipi more than anyone in the world, and when he comes back home for dinner, Calipi would always wait in the entrance of the crystal tower. They even made a kid named Kiwi, who was two. 
+
+Heather loves Meru. Heather's life was saved by Meru when she was born in a dark house abandoned by her parents. Meru and Heather made a kid named Haru.
 
 Meru loved guns. He would love to look cool, and attracted many girls. He would fight until his guns broke(he has 27 guns so far). He was actually very kind, but loved to tease his twin, Mist. One time Meru tried to shoot Mist when Mist stole 9 of his precious guns. Meru also loves a cute girl named Heather. Meru and Heather made a kid named Haru.
 
@@ -124,7 +156,7 @@ Flame once lived in a beatiful white world, along with a Manemo named Shirottori
 
 One day, Rainflower made her own breakfast and ate by herself. 
 
-"What happened?" asked Matt and the others
+"What happened?" asked Matt and the others.
 
 "..." said Rainflower.
 
@@ -144,7 +176,7 @@ One day, Rainflower made her own breakfast and ate by herself.
 
 "...So we need special gas masks..." said Matt.
 
-"How about this?" said Bubble. She made a Bubble with her magic, and put it on her head. She made another around her whole body, overlapping the head Bubble. Sirius put metal polish that she got from somewhere all over Bubble's head. Nothing happened to Bubble. "WOW!" said everyone. Bubble made bubbles for everyone. "Now we need a rocket." Everyone did not know how to make a rocket. Even Honest did not know how to make one. Calipi asked Honest to make a large piece of metal. Then she started denting the metal, making the shape of the rocket. She made a nice looking rocket. Snow was now inspired to finish making it. He started fixing some over-dented areas, and added interior. It was done. At this stage of the rocket, everyone was thinking about the fire. Then they all looked at Flame and Hatwey. Everyone brought the rocket outside, and Flame and Hatwey launched the rocket. Honest used magic to stop it from launching immediatly. Everyone brought snacks and food and pillows and blankets. There was a built in shower in the bathroom too. Everyone went in, and before they launched the rocket, Bubble covered the area where the fire was with a bubble.
+"How about this?" said Bubble. She made a Bubble with her magic, and put it on her head. She made another around her whole body, overlapping the head Bubble. Sirius put metal polish that she got from somewhere all over Bubble's head. Nothing happened to Bubble. "WOW!" said everyone. Bubble made bubbles for everyone. "Now we need a rocket." Everyone did not know how to make a rocket. Even Honest did not know how to make one. Calipi asked Honest to make a large piece of metal. Then she started denting the metal, making the shape of the rocket. She made a nice looking rocket. Snow was now inspired to finish making it. He started fixing some over-dented areas, and added interior. It was done. At this stage of the rocket, everyone was thinking about the fire. Then they all looked at Flame and Hatwey. Everyone brought the rocket outside, and Flame and Hatwey launched the rocket. Honest used magic to stop it from launching immediatly. Everyone brought snacks and food and pillows and blankets and towels and shampoo and body wash. There was a built in shower in the bathroom too. Everyone went in, and before they launched the rocket, Bubble covered the area where the fire was with a bubble.
 
 3...
 
@@ -158,3 +190,12 @@ Every good Manemo watched as the rocket launched.
 
 "Wow! This is amazing!" said Matt and the others.
 
+1 WEEK LATER
+
+"...WE'VE ARRIVED!" said Rainflower. Everyone woke up. It was beautiful. Neptune was green.
+
+Rainflower ran towards the exit. Bubble and Sirius followed. "Rainflower let's play!" said Sirius and Bubble. "Not another prank, right?" said Rainflower. "No!" said Sirius. "Not really!" said Bubble. "Hey!!" "What?" "You ruined the prank." "Not really. It wasn't funny anyway. I was just saying the truth!!!" said Bubble.
+
+"Heles, can we stick to my plan?" asked Reverse. "Nope! Today is no-plan day!" said Heles. "Again?" "Yep!" "Ok...." "Here we go!!!!" said Heles.
+
+"Meru. Let's go explore this island!
