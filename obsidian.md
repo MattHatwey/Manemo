@@ -8,6 +8,8 @@ I found it! There was a crack where you could fit your head, and maybe your whol
 
 I landed head first, but it didn't hurt. Then I saw two Manemos. It was Kacchan and Snow! Kacchan looked at me and blushed. I also blushed. We liked each other, and after I told her the story of Flame, she loved me even more. I told her that I knew her real name. She had so many connections with me, and I even got to go to one of the live concerts that her group was going to. Soon after, we married. Snow and I also became best friends. We would do everything together. The 3 of us...
 
+Flame came back today! I am so happy to see her again after all these years. I hope she hasn't changed. And she hasn't. She is the energetic and loud Flame that I remember.
+
 Gender: ♂
 
 Type: AB
