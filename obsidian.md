@@ -6,7 +6,7 @@ One day Flame was sent back to heaven to be a guardian angel again. Flame couldn
 
 I found it! There was a crack where you could fit your head, and maybe your whole body. I tried to go, and it worked! I was falling down to Manemo Land.
 
-I landed head first, but it didn't hurt. Then I saw a Manemo. It was Kacchan! She looked at me and blushed. I also blushed. We liked each other, and after I told her the story of Flame, she loved me even more. I told her that I knew her real name. She had so many connections with me, and I even got to go to one of the live concerts that her group was doing. Soon after, we married.
+I landed head first, but it didn't hurt. Then I saw two Manemos. It was Kacchan and Snow! Kacchan looked at me and blushed. I also blushed. We liked each other, and after I told her the story of Flame, she loved me even more. I told her that I knew her real name. She had so many connections with me, and I even got to go to one of the live concerts that her group was going to. Soon after, we married. Snow and I also became best friends. We would do everything together. The 3 of us...
 
 Gender: ♂
 
