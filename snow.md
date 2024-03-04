@@ -1,5 +1,5 @@
+I woke up on December 21st. Another boring day.
 
-
-Gender: ♂♀
+Gender: ♂
 
 Type: AB
