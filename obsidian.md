@@ -1,3 +1,5 @@
+Obsidian
+
 I woke up in heaven. I was one of those guardian angels that Manemos have. Manemos don't know that guardian angels exist, but it's a tough job, and when you don't even get a single praise, it just makes it harder and tougher.
 
 I was the guardian angel of this Manemo named Flame. She was also from heaven, but she escaped. I also wanted to escape. 
