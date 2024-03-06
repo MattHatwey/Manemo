@@ -292,6 +292,8 @@ Aves was waving and saying hi to Manemos as usual. This was the second time some
 
 "If this experiment works, we will re-create the Mird species. Back when Legendaria was alive, Mirds existed. Some newspapers say that Mirds helped Manemo Land from starting war. The first sign of Mirds dissapearing was found when Old Kingdarudo and Old Queendarudo were dropped in the volcano. Sadly, Mirds became endangered. Mirds went extinct after the first war, but a pair of red and blue Mirds went over to that island where you were born. Then they ran out of food. Then they died. So now, it is only you." said Leaf.  
 
+"I will do it!" said Aves.
+
 -2040-
 
 "I'm bored..." said everyone in the Crystal tower. "How about we seperate into groups to have fun?" asked Bubble, Heles, Crystal, Meru, and Matt. "Okay." said everyone else.
@@ -311,6 +313,10 @@ That crepe was good!" said Kiwi. "Yeah. That ice cream was good too!" said Haru.
 "Thank you!" said Haru and Kiwi.
 
 After playing for 6 hours, they went back to the Crystal tower with game prizes, candy in their pockets, stuffed toys, and more. Everyone looked surprised.
+
+-2041-
+
+Mirds have been created.
 
 -AS OF 2035-
 
