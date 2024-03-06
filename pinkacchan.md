@@ -1,3 +1,5 @@
+Pink/Kacchan
+
 I was born on a sunny and hot day. I was outside. Where is my house? I don't really care.
 
 Maybe a few months later, a Manemo walked towards me. She said her name was Sansei. She said I could live in the Crystal tower. This other Manemo also came. I didn't mind her being around at all. 
