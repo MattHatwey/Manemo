@@ -166,7 +166,17 @@ Shirottori- also came in. He had greeted the kids first. Everyone was interested
 
 "What do you mean rescue?" said Flame. Shirottori- whispered something to Flame. Flame smiled but at the same time looked like she was crying.
 
---
+-2036-
+
+"...That's sad to hear. It's okay though. I know you can escape again!" said Kacchan.
+
+"I don't wanna go back! This is my home." said Flame.
+
+"It's okay." said Snow.
+
+"..." said Flame.
+
+-2036-
 
 "Heather!" said Meru, in his pure and kind attitude. Heather smiled at Meru. Heather and Meru were walking to the usual dry plain where Meru would pose and attract girls.
 
@@ -188,7 +198,59 @@ Instead of going to a proper wedding, they spun around to go to heaven (the plac
 
 They walked around into the town, the Manemos there greeted Meru and Heather.
 
---
+-2037-
+
+"....." 
+
+"...Snow..?" said Calipi.
+
+"!..." said Snow.
+
+Calipi looked at Snow. She was good at looking at things in the dark.
+
+Snow was crying.
+
+"I thought your other lives were useless." said Calipi.
+
+Calipi stared at Snow.
+
+She saw a pirate ship in Snow's eyes.
+
+Next to the left eye, she saw a pirate Manemo.
+
+"I have a secret." said Snow, who already seemed to stop crying.
+
+"Yes?" said Calipi.
+
+"In my past life, I was on a pirate ship, and that pirate Manemo you saw saved my life. He would take care of me all the time. He died, and I also drowned because I couldn't live without him. I can't remember his name, and I want to find him." said Snow.
+
+"But he died, right?" said Calipi.
+
+"Yeah, but just like me, he will reborn as a new Manemo." said Snow.
+
+"Snow, only you can remember your past lives." said Calipi.
+
+"..!" said Snow.
+
+"..." said Calipi.
+
+"I thought of something." said Calipi.
+
+"?" said Snow.
+
+"Maybe he went to where Shirottori- lives. Although, Shirottori- went to the real heaven. Because that place Heles and Reverse went to was actually the farlands." said Calipi.
+
+"!" said Snow.
+
+"Thank you." said Snow.
+
+"Of course." said Calipi, smiling. 
+
+"!...." said Snow, blushing.
+
+After that night, Snow never cried about the pirate Manemo. Instead, he would think of how nice he was. Just like Shirottori-. He was kind.
+
+-2038-
 
 "I have to go to heaven." said Flame, again, to Matt and Sansei.
 
@@ -208,11 +270,29 @@ Obsidian liked Kacchan too. Kacchan and Obsidian decided to marry each other.
 
 Obsidian could feel everything Flame felt. Sometimes he felt like he was in a different universe even though he was next to someone. Sometimes you could see Obsidian crying in pain. Whenever someone saw him crying, he would laugh, although it wasn't a happy laugh. It was a sad laugh.
 
+-2039-
+
 One day, Kacchan saw Obsidian crying. Instead of fake laughing, he just continued crying. Soon Kacchan noticed that Obsidian was crying with joy. Flame was behind him.
 
 Flame ran toward Kacchan. Obsidian also hugged Kacchan. Obsidian had finally his own thoughts. Until now, it was just Flame's mind. Flame apologized but Obsidian didn't mind.
 
---
+Obsidian still loved Kacchan the same, even after he has his own thoughts.
+
+-2039-
+
+"Aves?" said a Manemo who was on her way to the grocery.
+
+Aves was waving and saying hi to Manemos as usual. This was the second time somebody came up to him.
+
+"Are you...?" said Aves. Suddenly the Manemo smiled. "Yes, I'm back." said the Manemo.
+
+"We would like to do an experiment on you, is that okay?" said the Manemo.
+
+"My name is Leaf." said the Manemo.
+
+"If this experiment works, we will re-create the Mird species. Back when Legendaria was alive, Mirds existed. Some newspapers say that Mirds helped Manemo Land from starting war. The first sign of Mirds dissapearing was found when Old Kingdarudo and Old Queendarudo were dropped in the volcano. Sadly, Mirds became endangered. Mirds went extinct after the first war, but a pair of red and blue Mirds went over to that island where you were born. Then they ran out of food. Then they died. So now, it is only you." said Leaf.  
+
+-2040-
 
 "I'm bored..." said everyone in the Crystal tower. "How about we seperate into groups to have fun?" asked Bubble, Heles, Crystal, Meru, and Matt. "Okay." said everyone else.
 
