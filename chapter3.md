@@ -186,7 +186,7 @@ Haru was very lively infront of her favorite Manemos, but usually very calm.
 
 Instead of going to a proper wedding, they spun around to go to heaven (the place that Heles and Reverse went to)
 
-They walked around into the town, the Manemos there greeted Meru and Heather
+They walked around into the town, the Manemos there greeted Meru and Heather.
 
 --
 
