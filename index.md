@@ -14,7 +14,7 @@
 
 [❄☮ CH 3 ✡☼](chapter3.md)
 
-[❄☮ CH 4 ✡☼]
+[❄☮ CH 4 ✡☼](chapter4.md)
 
 [⚚ MATT'S FAMILY ⚚](mattkids.md)
 
