@@ -42,8 +42,6 @@ Suddenly the godess of stars and Legendaria and Legendarius appeared.
 
 "You." said Legendaria.
 
-"You are the godess of plants and animals, or the godess of life." said Legendaria, pointing at Rainflower.
-
 "You are the god of soul."
 
 "You are the god of birds."
@@ -70,4 +68,20 @@ Suddenly the godess of stars and Legendaria and Legendarius appeared.
 
 "You are the godess of reversal."
 
-"You are the godess of
+"You are the godess of spring."
+
+"You are the godess of fruit."
+
+"You are the godess of heaven."
+
+"You are the god of winter."
+
+"You are the godess of peace."
+
+"You are the godess of plants and animals, or the godess of life."
+
+"You are the godess of fire."
+
+"You are the god of magic."
+
+"Now I really feel like a god!" said Matt.
