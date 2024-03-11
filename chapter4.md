@@ -59,7 +59,7 @@ c"You are the god of life." Snow
 
 "You are the godess of gemstones." Crystal
 
-"You are the godess of myths." Sirius
+"You are the godess of sealife." Sirius
 
 "You are the godess of sea." Bubble
 
