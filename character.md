@@ -300,3 +300,138 @@ Pets
 
 SPECIAL! Gods and Godesses
 
+god of life Snow 
+
+god of birds Aves
+
+god of spirit Obsidian
+
+god of loneliness Esper
+
+god of wilderness Meru
+
+godess of lies Kacchan/Pink
+
+godess of war Calipi
+
+godess of love Mist
+
+godess of gemstones Crystal
+
+godess of sealife Sirius
+
+godess of sea Bubble
+
+godess of charms Heles
+
+godess of time Reverse
+
+godess of flowers Haru
+
+godess of fruit Kiwi
+
+godess of heaven Flame
+
+god of winter Matt
+
+godess of peace Sansei
+
+godess of plants and animals, or the godess of life Rainflower
+
+godess of fire Hatwey
+
+god of magic Honest
+
+twin godesses of sweets Ichigo Choco
+
+twin godesses of evolution Earon Wisteria
+
+godess of shows F.S.
+
+godess of truth Truth
+
+godess of freedom Freedom
+
+godess of love Love
+
+godess of dimentions Prince
+
+godess of galaxy star GalaxyStar
+
+god of green star GreenStar
+
+twin godesses of cold sweets Ai Con
+
+godess of music and sweets Onpurin
+
+twin godesses of savory sweets Tiramisu Creamy
+
+sextuplet godesses of peekaboos Cinnamon Cream Milk Vanilla Chocochip Cookie
+
+god of the first star Issei
+
+godess of dim stars Leila
+
+twin godesses of connections Pattern Arabelle
+
+godess of legends Legendaria
+
+godess of myths Legendarius
+
+-Enchendaria (Born:0? Age♾️?
+
+-Kuzukun (Born:2010/1/3 Age:14
+
+-GumiAke-San! 
+
+-Reton (Palette) (Born:2010/8/25 Age:14
+
+-Easter (Born:2010/4/? Age:14
+
+-Pastel (Born:2010/2/15 Age:14
+
+-Platius (Born:2010/2/15 Age:14
+
+-Pescarudo (Born:100 Age:24?
+
+-Kingdarudo (Born:0 Age♾️
+
+-Old Kingdarudo (Born:0 Age♾️
+
+-Queendarudo (Born:0 Age♾️
+
+-Old Queendarudo (Born:0 Age♾️
+
+-Pink (Born:2022/6/6 Age:1
+
+-Mirage (Born:2022/1/27 Age:1
+
+-Masa
+
+-Mizuki
+
+-Leo
+
+-Masa's Mom (Name unknown)
+
+-Suzu
+
+-Ran
+
+-Akira (Sumida)
+
+-Hikaru
+
+-Kiki
+
+-Ace Spade
+
+-Mitubano Clover
+
+-Seven Diamond
+
+-King of Hearts
+
+-garnet (Born:2000/ Age:23
+
+-amethyst (Born:2000/ Age:23
