@@ -62,19 +62,7 @@ Matt and Sansei’s Friends
 
 -Love (Born:2010/2/14 Age:14
 
--Tengoku Kara Kita Mahou Tsukai Chan (Born:2010/3/3 Age:14
-
--P.O.T.
-
 -Prince (Born:1986/6/21 Age:41
-
--Waffle And Pancake
-
--girlfriend.png 
-
--boyfriend.jpeg 
-
--Spilled Stuff 
 
 -GalaxyStar (Born:100/11/15 Age:23?
 
@@ -92,7 +80,15 @@ Matt and Sansei’s Friends
 
 -Cinnamon
 
--Cinnamon
+-Cream
+
+-Milk
+
+-Vanilla
+
+-Chocochip
+
+-Cookie
 
 -Issei (Born:1990/4/5 Age:32
 
@@ -108,33 +104,7 @@ Matt and Sansei’s Friends
 
 -Enchendaria (Born:0? Age♾️?
 
--Goki #1
-
--Goki #2
-
--Goki #3 
-
 -Kuzukun (Born:2010/1/3 Age:14
-
--Kusa
-
--Pirate
-
--Heart
-
--Candy Bag 
-
--Candy  
-
--Bob (a)
-
--BOB 
-
--HB Pencil
-
--Child Paper 
-
--Paper 
 
 -GumiAke-San! 
 
@@ -160,9 +130,37 @@ Matt and Sansei’s Friends
 
 -Mirage (Born:2022/1/27 Age:1
 
+-Masa
+
+-Mizuki
+
+-Leo
+
+-Masa's Mom (Name unknown)
+
+-Suzu
+
+-Ran
+
+-Akira (Sumida)
+
+-Hikaru
+
+-Kiki
+
+-Ace Spade
+
+-Mitubano Clover
+
+-Seven Diamond
+
+-King of Hearts
+
 -garnet (Born:2000/ Age:23
 
 -amethyst (Born:2000/ Age:23
+
+CRYSTAL
 
 -aquamarine
 
@@ -299,3 +297,6 @@ Pets
 -Rui (Born: Age:
 
 -Dominic (Born: Age:
+
+SPECIAL! Gods and Godesses
+
