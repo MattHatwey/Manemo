@@ -84,4 +84,6 @@ Suddenly the godess of stars and Legendaria and Legendarius appeared.
 
 "You are the god of magic."
 
+...Please check Characters for the rest of the gods and godesses.
+
 "Now I really feel like a god!" said Matt.
