@@ -68,7 +68,7 @@ Suddenly the godess of stars and Legendaria and Legendarius appeared.
 
 "You are the godess of reversal."
 
-"You are the godess of spring."
+"You are the godess of flowers."
 
 "You are the godess of fruit."
 
