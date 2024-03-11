@@ -41,48 +41,47 @@ Suddenly the godess of stars and Legendaria and Legendarius appeared.
 "WHAT?" said everyone.
 
 "You." said Legendaria.
+c"You are the god of life." Snow 
 
-"You are the god of soul."
+"You are the god of birds." Aves
 
-"You are the god of birds."
+"You are the god of spirit." Obsidian
 
-"You are the god of spirit."
+"You are the god of loneliness." Esper
 
-"You are the god of illusion." 
+"You are the god of wilderness." Meru
 
-"You are the god of wilderness."
+"You are the godess of lies." Kacchan/Pink
 
-"You are the godess of lies."
+"You are the godess of war." Calipi
 
-"You are the godess of war."
+"You are the godess of love." Mist
 
-"You are the godess of love."
+"You are the godess of gemstones." Crystal
 
-"You are the godess of gemstones." 
+"You are the godess of myths." Sirius
 
-"You are the godess of sealife." 
+"You are the godess of sea." Bubble
 
-"You are the godess of sea."
+"You are the godess of charms." Heles
 
-"You are the godess of charms."
+"You are the godess of time." Reverse
 
-"You are the godess of reversal."
+"You are the godess of flowers." Haru
 
-"You are the godess of flowers."
+"You are the godess of fruit." Kiwi
 
-"You are the godess of fruit."
+"You are the godess of heaven." Flame
 
-"You are the godess of heaven."
+"You are the god of winter." Matt
 
-"You are the god of winter."
+"You are the godess of peace." Sansei
 
-"You are the godess of peace."
+"You are the godess of plants and animals, or the godess of life." Rainflower
 
-"You are the godess of plants and animals, or the godess of life."
+"You are the godess of fire." Hatwey
 
-"You are the godess of fire."
-
-"You are the god of magic."
+"You are the god of magic." Honest
 
 ...Please check Characters for the rest of the gods and godesses.
 
