@@ -85,4 +85,30 @@ c"You are the god of life." Snow
 
 ...Please check Characters for the rest of the gods and godesses.
 
-"Now I really feel like a god!" said Matt.
+"Now I really feel like a god!" said Matt. "Should we go home now?" asked Sansei. "Maybe." said Honest. "I want to go back home!" said Hatwey. "Okay. Should we go then?" said Matt.
+
+"YAY!" said Hatwey.
+
+The trip back to Manemo Land was boring.
+
+"We've arrived!" said Matt, happily. "Finally. Honest, watcha lookin at?" asked Hatwey. "Can you believe this!? There's this planet called Earth, and these things called humans are calling our Manemo Land, URANUS!!!" said Honest. "WHAT!??" said everyone. "That's a stupid name." said Sansei. 
+
+"How about we rename it?" asked Snow, suddenly.
+
+"Wow! I thought you'd never say a word." said everyone.
+
+"..." said Snow, angrily.
+
+"How about Caelus?" said Calipi.
+
+"Oh, that's a good name! Where did that name come from?" asked Bubble.
+
+"I don't know." said Calipi.
+
+-Author's Note-
+
+Now that Uranus has been renamed, world peace is back.
+
+Also, NEVER call it Uranus. It's Caelus!!!
+
+-LEGENDARIAAAAA
