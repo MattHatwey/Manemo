@@ -91,7 +91,7 @@ c"You are the god of life." Snow
 
 The trip back to Manemo Land was boring.
 
-"We've arrived!" said Matt, happily. "Finally. Honest, watcha lookin at?" asked Hatwey. "Can you believe this!? There's this planet called Earth, and these things called humans are calling our Manemo Land, URANUS!!!" said Honest. "WHAT!??" said everyone. "That's a stupid name." said Sansei. 
+"We've arrived!" said Matt, happily. "Finally. Honest, watcha lookin at?" asked Hatwey. "Can you believe this!? There's this planet called Earth, and these things called humans are calling Manemo Land URANUS!!!" said Honest. "WHAT!??" said everyone. "That's a dumb name." said Sansei. 
 
 "How about we rename it?" asked Snow, suddenly.
 
@@ -105,10 +105,14 @@ The trip back to Manemo Land was boring.
 
 "I don't know." said Calipi.
 
--Author's Note-
+The Manemos were waiting until everyone came out of the rocket.
 
-Now that Uranus has been renamed, world peace is back.
+"Make a map!" said one kid.
 
-Also, NEVER call it Uranus. It's Caelus!!!
+"Wait, that's a great idea!" said Matt.
 
--LEGENDARIAAAAA
+-5 HOURS LATER-
+
+"...So this town would be" said Honest. "Sunlight Town!" said Bubble and Sirius and the other kids younger than them. "Since we live here, this is the first place to see the sunrise." said Matt.
+
+"The grassland region can be renamed as the plains." said Sansei.
