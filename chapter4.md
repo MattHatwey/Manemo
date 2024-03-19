@@ -111,11 +111,61 @@ The Manemos were waiting until everyone came out of the rocket.
 
 "Wait, that's a great idea!" said Matt.
 
--5 HOURS LATER-
+-1 HOUR LATER-
 
 "...So this town would be" said Honest. "Sunlight Town!" said Bubble and Sirius and the other kids younger than them. "Since we live here, this is the first place to see the sunrise." said Matt.
 
+"Crystal Tower could be part of Sunlight Town." said Matt.
+
+"The Swamp right there could also be part of Sunlight Town. The tiny desert, too." said Honest.
+
+"That tiny plain area is gonna be called Meru's spotlight!" said Meru and Heather.
+
+"NOPE!" said Heles and Reverse.
+
+"It's gonna be the called The first entrance to the heaven-like city where we found flame and shirottori- and it's also a very small plain! right?" said Reverse and Heles.
+
+"I think it should just be part of Sunlight Town." said Heather.
+
+Calipi and Snow nodded.
+
+"Okay, sounds good." said Sansei.
+
+"What else?" said Hatwey, very inpatiently.
+
+"Yeah, what else?" said Heles, also inpatiently.
+
+"Hmm.." said Matt and Honest.
+
 "The grassland region can be renamed as the plains." said Sansei.
+
+"Oh finally a suggestion which isn't part of Sunlight Town." said Heles and Bubble and Sirius.
+
+"Over there would be Cloud City, where Aves was found." said Sansei.
+
+"That would be Sky Village? With the Sky Marketplace?" said Matt.
+
+"Sounds good!" said Hatwey.
+
+"Also, next to Cloud City is Cute City." said Kacchan. She regretted what she said 5 seconds later.
+
+"Why? Just make it part of Cloud City." said mostly everyone.
+
+"That area does have a lot of Idol Concerts!" said Obsidian, who instantly regretted saying anything.
+
+Kacchan stared at Obsidian and whispered "You weren't supposed to say anything!" Obsidian just looked at Kacchan.
+
+"Is Kacchan an Idol?" asked one innocent Manemo.
+
+Matt stared at Kacchan. "We'll talk about this later."
+
+Kacchan just stared at the ground.
+
+"The Badland Territory could be divided into the Volcano of Evil, Blood Lake, Forest of the Dead, Bloodflower plains." said Calipi, very calmly.
+
+"Wow, those names are horrifying." said Matt.
+
+"What else?" said Heles again, more inpatiently.
 
 "Is that all?" asked Matt.
 
@@ -123,6 +173,7 @@ The Manemos were waiting until everyone came out of the rocket.
 
 "Okay, then!" said Matt.
 
-"EVERYONE!" said Matt. "We're almost done!!" 
+"EVERYONE!" said Matt. "We think we're done!!" 
 
 "YAY!!!" said everyone.
+
