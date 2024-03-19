@@ -116,3 +116,13 @@ The Manemos were waiting until everyone came out of the rocket.
 "...So this town would be" said Honest. "Sunlight Town!" said Bubble and Sirius and the other kids younger than them. "Since we live here, this is the first place to see the sunrise." said Matt.
 
 "The grassland region can be renamed as the plains." said Sansei.
+
+"Is that all?" asked Matt.
+
+"Probably..." said Honest and Hatwey.
+
+"Okay, then!" said Matt.
+
+"EVERYONE!" said Matt. "We're almost done!!" 
+
+"YAY!!!" said everyone.
