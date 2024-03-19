@@ -108,9 +108,9 @@ Heles and Reverse woke up to see a white landscape.
 
 "It's cold here." said Reverse. "Yeah. I see a hollow tree over there. Let's go!" said Heles. The inside of the tree was quite warm. "I'm getting some leaves to block the entrance." said Reverse. "Okay!" said Heles.
 
-"...REVERSE!!!" said Heles. "What?" said Reverse. Reverse walked outside of the log. They saw the sky was getting darker, and as it got darker, they saw a faint light glowing.
+"...HELES!!!" said Reverse. "What?" said Heles. Heles walked outside of the log. They saw the sky was getting darker, and as it got darker, they saw a faint light glowing.
 
-"...Wow..." said Reverse. "...Wait!!" said Reverse. Heles had started running toward the lights.
+"...Wow..." said Heles. "...Wait!!" said Reverse. Heles had started running toward the lights.
 
 "..." said Heles. 
 
@@ -162,7 +162,7 @@ Soon they arrived back in the dry plain where they started spinning. It had been
 
 Shirottori- also came in. He had greeted the kids first. Everyone was interested in Shirottori-.
 
-"Hello. I am Shirottori- from the Snow Palace. Thank you for rescuing us." said Shirottori-.
+"Hello. I am Shirottori- from the Snowy Village. Thank you for rescuing us." said Shirottori-.
 
 "What do you mean rescue?" said Flame. Shirottori- whispered something to Flame. Flame smiled but at the same time looked like she was crying.
 
