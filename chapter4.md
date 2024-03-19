@@ -177,3 +177,24 @@ Kacchan just stared at the ground.
 
 "YAY!!!" said everyone.
 
+One day, Matt and Sansei asked Obsidian and Kacchan to come home early.
+
+"Why did you bring me here?" said Obsidian and Kacchan, although, they knew why.
+
+"You know why. Explain to me." said Matt.
+
+"I am an Idol, named Pink." said Kacchan.
+
+"REALLY?!!?!?!" said Matt and Sansei. "Although you look similar, I never knew.
+
+"Then which Idol did you think I was?" said Kacchan.
+
+"I thought you were trying to hide a very deep secret from us. I didn't think you were an idol!" said Matt. "And when Obsidian said something about Idols, we thought he loved Idols or something." said Sansei.
+
+"The reason I hid this secret was because I started when I was 7. I didn't participate school properly." said Kacchan.
+
+"It's okay." said Matt and Sansei.
+
+"Can we tell the rest of the Crystal Tower?" asked Matt.
+
+"Yes." said Kacchan and Obsidian, happily. Now that they had admitted what happened, they felt very happy.
