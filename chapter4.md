@@ -177,7 +177,7 @@ Kacchan just stared at the ground.
 
 "YAY!!!" said everyone.
 
-One day, Matt and Sansei asked Obsidian and Kacchan to come home early.
+The next day, Matt and Sansei asked Obsidian and Kacchan to come home early.
 
 "Why did you bring me here?" said Obsidian and Kacchan, although, they knew why.
 
@@ -198,3 +198,44 @@ One day, Matt and Sansei asked Obsidian and Kacchan to come home early.
 "Can we tell the rest of the Crystal Tower?" asked Matt.
 
 "Yes." said Kacchan and Obsidian, happily. Now that they had admitted what happened, they felt very happy.
+
+"Hello~?" said one voice.
+
+"Shut up" said another.
+
+"Um, where are we?" said another voice.
+
+"I don't know. What do you think?" said another voice.
+
+"..." said another.
+
+The voices came closer towards Matt and the others, and they could see their head. One was black with cute decorations, one was blonde, one was blonde with a black and gold mesh, one was blonde with many blue stripes. Finally, one was just black.
+
+"Hi!!!" said a voice they heard earlier.
+
+"Hello! Who are you?" said Matt.
+
+"I'm Rigel! And I'm 7 years old!" said Rigel.
+
+Rigel was blonde with a black and gold mesh.
+
+"Nice to meet you. I'm Matt" said Matt.
+
+"I'm Sansei." said Sansei.
+
+"I'm Heles!!!" said Heles.
+
+"Hehehe!" said Rigel.
+
+"I am Orion. Nice to meet you." said Orion, who was blonde.
+
+"I'm Mira!" said Mira.
+
+Mira had black hair, and cute decorations on top.
+
+"I'm Castor." said Castor, who was blonde with many blue stripes.
+
+"I'm Vega." said Vega, who had black hair.
+
+"Nice to meet you all!" said Matt and Sansei.
+
