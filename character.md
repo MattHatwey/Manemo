@@ -64,6 +64,14 @@ Matt and Sansei’s Friends (2024/1)
 
 -Wisteria (Born:2010/12/5 Age:14
 
+-Starflower (Born:2005/10/5 Age:19
+
+-Pearlflower (Born:2005/6/1 Age:19
+
+-Rainbow (Born:2005/3/24 Age:19
+
+-Paradise (Born:2005/5/2 Age:19
+
 -F.S. (Born:2010/3/29 Age:14
 
 -Truth (Born:2005/8/6 Age:19
