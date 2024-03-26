@@ -241,7 +241,9 @@ Mira had black hair, and cute decorations on top.
 
 Meru and Castor were very similar, but Castor was pretty cruel. Orion was like Esper, Mira was like Crystal and Mist combined, and she was very lively. Rigel was like Sirius, he was pure, and liked to prank people (not as much as Bubble, but more than Sirius). Vega was like Calipi and Kacchan combined.
 
-"Castor, I win because I already have a girlfriend!!!" said Meru.
+"Castor, I win because I already have a girlfriend!!!" said Meru, who brought Heather over.
+
+"Hello!" said Heather. It was just Heather, and she greeted everyone earlier, but Castor didn't pay close attention. Heather was very cute.
 
 "Are you trying to beat me?" said Castor. "Yes." said Meru. "Well then, get ready to fight!" said Castor. "But I already won!" said Meru.
 
@@ -249,7 +251,7 @@ Meru and Castor were very similar, but Castor was pretty cruel. Orion was like E
 
 "Why?" asked Meru. "Look behind." said Castor.
 
-Meru looked. It was Mira, but Meru didn't see her closely when they greeted Matt and Sansei.Mira was beautiful.
+Meru looked. It was Mira, but Meru didn't see her closely when they greeted Matt and Sansei. Mira was beautiful.
 
 "Hi again! What was your name?" said Mira.
 
@@ -265,3 +267,6 @@ Meru and Castor were now tied. Meru had Heather. Castor had Mira. Meanwhile Mira
 
 Meru and Castor overheard the conversation. They decided to pretend they didn't hear it.
 
+"Do you have guns?" asked Castor.
+
+"Yeah!" said Meru.
