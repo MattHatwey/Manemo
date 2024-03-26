@@ -270,3 +270,21 @@ Meru and Castor overheard the conversation. They decided to pretend they didn't 
 "Do you have guns?" asked Castor.
 
 "Yeah!" said Meru.
+
+"How many?" asked Castor, holding 2 guns in his hand.
+
+"More than you." said Meru, holding a sack of guns.
+
+"I bet not." said Castor, also holding a sack of guns.
+
+They started counting all the guns they had that were in their sack they carried.
+
+"27!" said Castor and Meru.
+
+"Maybe we are born to be friends, not rivals!" said Meru.
+
+"True. Nice to meet you, Meru." said Castor.
+
+"What's your favorite gun?" asked Castor.
+
+"Mine is 
