@@ -287,4 +287,18 @@ They started counting all the guns they had that were in their sack they carried
 
 "What's your favorite gun?" asked Castor.
 
-"Mine is 
+"Mine is this one." said Meru.
+
+"Wow!" said Castor.
+
+"That's a rare one, right?" asked Meru.
+
+"Yeah. I have one too, though." said Castor.
+
+"What's your favorite gun?" asked Meru.
+
+"This rare type of machine gun." said Castor, holding a very small, smaller than a revolver machine gun in his hand.
+
+"Wow!" said Meru.
+
+By this time Meru and Castor had become the best of friends.
