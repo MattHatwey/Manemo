@@ -239,7 +239,7 @@ Mira had black hair, and cute decorations on top.
 
 "Nice to meet you all!" said Matt and Sansei.
 
-Meru and Castor were very similar, but Castor was pretty cruel. Orion was like Esper, Mira was like Crystal and Mist combined, and she was very lively. Rigel was like Sirius, he was pure, and liked to prank people (not as much as Bubble, but more than Sirius). Vega was like Calipi and Kacchan combined.
+Meru and Castor were very similar, but Castor was pretty cruel. Orion was like Esper, Mira was like Crystal and Mist combined, and she was very lively. Rigel was like Sirius and Bubble combined, he was pure, and liked to prank people (not as much as Bubble, but more than Sirius). Vega was like Calipi and Kacchan combined.
 
 "Castor, I win because I already have a girlfriend!!!" said Meru, who brought Heather over.
 
@@ -302,3 +302,7 @@ They started counting all the guns they had that were in their sack they carried
 "Wow!" said Meru.
 
 By this time Meru and Castor had become the best of friends.
+
+Mist had also came to see what was going on, and discovered Mira and Heather playing together. Mist and Mira soon became friends, and so did Mist and Heather.
+
+Meanwhile Crystal was getting spoiled by Orion and Esper. Orion was asking Crystal about what foods she liked, and what she was talented in. Crystal told Orion about her Crystal Powers. Orion praised Crystal. Esper was serving orders at Bubble Lake, and since Crystal and Orion where sitting near the shop, they also came to help. Esper was telling Orion how cute Crystal was. Orion smiled and pet Crystal on the head.
