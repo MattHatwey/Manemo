@@ -203,9 +203,13 @@ The next day, Matt and Sansei asked Obsidian and Kacchan to come home early.
 
 "Shut up" said another.
 
+"Hey!!! That was mean!" said one voice.
+
 "Um, where are we?" said another voice.
 
 "I don't know. What do you think?" said another voice.
+
+"Hmm..." said another voice.
 
 "..." said another.
 
@@ -301,8 +305,22 @@ They started counting all the guns they had that were in their sack they carried
 
 "Wow!" said Meru.
 
+"Wait, do you have one too?" asked Castor.
+
+"I do!" said Meru, holding up another small machine gun.
+
 By this time Meru and Castor had become the best of friends.
 
 Mist had also came to see what was going on, and discovered Mira and Heather playing together. Mist and Mira soon became friends, and so did Mist and Heather.
 
-Meanwhile Crystal was getting spoiled by Orion and Esper. Orion was asking Crystal about what foods she liked, and what she was talented in. Crystal told Orion about her Crystal Powers. Orion praised Crystal. Esper was serving orders at Bubble Lake, and since Crystal and Orion where sitting near the shop, they also came to help. Esper was telling Orion how cute Crystal was. Orion smiled and pet Crystal on the head.
+Meanwhile Crystal was getting spoiled by Orion and Esper. 
+
+"Nice to meet you, I am Orion." said Orion.
+
+"I'm Crystal!" said Crystal, happily.
+
+Orion was asking Crystal about what foods she liked, and what she was talented in. Crystal told Orion about her Crystal Powers. Orion praised Crystal. 
+
+Esper was serving orders at Bubble Lake, and since Crystal and Orion where sitting near the shop, they also came to help. Esper was telling Orion how cute Crystal was. Orion smiled and pat Crystal on the head.
+
+Rigel was just walking around happily.
