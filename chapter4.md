@@ -323,4 +323,24 @@ Orion was asking Crystal about what foods she liked, and what she was talented i
 
 Esper was serving orders at Bubble Lake, and since Crystal and Orion where sitting near the shop, they also came to help. Esper was telling Orion how cute Crystal was. Orion smiled and pat Crystal on the head.
 
-Rigel was just walking around happily.
+Rigel was just walking around happily. Bubble, Sirius, Heles, and Reverse were talking with Rigel while he explored the area. They thought he was very cute.
+
+Rigel could tell that they liked him, because of the attention he was getting. He liked it.
+
+Vega was getting a drink at Bubble Lake. Vega looked at Orion, blushed, then quickly ordered her drink. She was still blushing. Orion smiled, and was blushing too. After Vega quickly ran away and hid in the bush, she overheard Esper say:
+
+"That was Vega, right? Does she like you?" 
+
+And then Vega overheard Orion's answer to Esper's question.
+
+"I'm pretty sure Vega likes me, but I love her too."
+
+Vega tried not to make a noise, but she was shaking with joy and happiness. She couldn't stop her body moving. She felt too happy.
+
+Soon Orion and Esper saw the wiggling bush that Vega was in, and Orion came toward it.
+
+"Is this a species of plant that wiggles around?" asked Orion. Esper and Vega laughed at the same time, so Orion could only hear Esper laughing.
+
+Vega was trying to figure out how to escape out of the situation. She didn't know how to use magic.
+
+Orion suddenly looked into the bush. He was surprised to see Vega. He blushed because he knew she must have overheard the conversation that Esper and he was talking about. Vega just stared right into Orion. Orion smiled. Vega looked at Orion. Soon Vega smiled. Her eyes looked like opals.
