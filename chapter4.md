@@ -333,14 +333,42 @@ Vega was getting a drink at Bubble Lake. Vega looked at Orion, blushed, then qui
 
 And then Vega overheard Orion's answer to Esper's question.
 
-"I'm pretty sure Vega likes me, but I love her too."
+"I'm pretty sure Vega likes me, but I love her more."
 
 Vega tried not to make a noise, but she was shaking with joy and happiness. She couldn't stop her body moving. She felt too happy.
 
 Soon Orion and Esper saw the wiggling bush that Vega was in, and Orion came toward it.
 
-"Is this a species of plant that wiggles around?" asked Orion. Esper and Vega laughed at the same time, so Orion could only hear Esper laughing.
+"Is this a species of plant that wiggles around?" asked Orion, half-joking. Esper, Crystal and Vega laughed at the same time, so Orion could only hear Esper and Crystal laughing.
 
 Vega was trying to figure out how to escape out of the situation. She didn't know how to use magic.
 
 Orion suddenly looked into the bush. He was surprised to see Vega. He blushed because he knew she must have overheard the conversation that Esper and he was talking about. Vega just stared right into Orion. Orion smiled. Vega looked at Orion. Soon Vega smiled. Her eyes looked like opals.
+
+"You heard what I said, right?" asked Orion, who was not trying to hide the fact that he liked Vega, because now he was sure he knew Vega liked him too.
+
+"Yes." said Vega, trying to act calm, but she still sounded a little bit panicky.
+
+"I love you." said Orion, holding Vega's hand.
+
+"Me too...!" said Vega, blushing. Orion smiled.
+
+Vega also held Orion's hand, then 5 seconds later, she was running away full-speed.
+
+"Wait-!" said Orion. He used his magic to teleport to Vega. Vega decided not to run away from Orion ever again. Besides, Vega wanted to be next to Orion anyway.
+
+Now that everyone new had become used to Sunlight Town and the places near Sunlight Town, everyone went back to the Crystal Tower to choose their rooms, and the others walked around with them and explained the house rules and etc.
+
+"I want to change rooms too!" said most of the kids. "I guess everyone can remake their rooms or change rooms." said Sansei. "Yeah. The rooms that nobody needs will be storage, ok?" said Matt. "Okay!" said everyone.
+
+"We're done!" said everyone, a few hours later.
+
+On the first floor was Sansei, Crystal, Esper, Aves, Heles, Reverse, Rigel, Bubble, Sirius, Kitchen, Dining. (8)
+
+On the second floor was Mist, Meru, Mira, Heather, Castor, Coffee Table, Shower. (5)
+
+On the third floor was Matt, Kiwi, Haru, Flame, Kacchan, Calipi, Snow, Obsidian, Vega, Orion, Matt's Mirror. (10)
+
+On the fourth floor was Sansei, Matt, Storage, Shower (2)
+
+On the fifth floor was Attic, Kacchan (1)
