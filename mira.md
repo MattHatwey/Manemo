@@ -1,3 +1,5 @@
+Mira
+
 "Who am I?" I asked to myself, quietly. I didn't know who I was, or why I was alive. I couldn't remember anything.
 
 One day, I met Vega, Orion, Castor, and Rigel.
@@ -11,3 +13,7 @@ Soon, the memories of the past faded away, but since that first day that I met C
 Recently, we escaped the prison cell because one of the Bad Manemos forgot to lock the gate. We ran toward the sunrise. As the sun rose, we watched everything come to life. The flowers, the animals, the sky, everything seemed to come to life. It felt like a miracle to me. I will never forget that miracle.
 
 We were soon chatting together, happily, until we saw a town infront of us. Then, two Manemos appeared and let us live in a big tower.
+
+Gender: ♀
+
+Type: AB
