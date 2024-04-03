@@ -6,7 +6,7 @@ I soon found out that the others also couldn't remember that much, and we realiz
 
 Castor became my boyfriend because we were both very similar in age. I loved him, he was loud, but I like him. I know he loves me too.
 
-Soon, the memories of the past faded away, but since that first day that I met Castor and the others, I never forgot anything anyone said or did. Even the first day I met them started to become more vivid the more I thought about it.
+Soon, the memories of the past faded away, but since that first day that I met Castor and the others, I never forgot anything or anyone after that. Even the first day I met them started to become more vivid the more I thought about it.
 
 Recently, we escaped the prison cell because one of the Bad Manemos forgot to lock the gate. We ran toward the sunrise. As the sun rose, we watched everything come to life. The flowers, the animals, the sky, everything seemed to come to life. It felt like a miracle to me. I will never forget that miracle.
 
