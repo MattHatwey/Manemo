@@ -18,6 +18,7 @@ Suddenly a group of Manemos from the wedding came along with the Goddess of Star
 
 "But that was a real smile." 
 
+We held hands on the whole way to their house.
 I stared at him, and I held his hand. He also held my hand. My heart felt warm. I had never felt happiness like this. I liked it.
 
 Gender: ♀
