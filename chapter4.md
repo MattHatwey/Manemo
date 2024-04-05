@@ -327,13 +327,21 @@ Rigel was just walking around happily. Bubble, Sirius, Heles, and Reverse were t
 
 Rigel could tell that they liked him, because of the attention he was getting. He liked it.
 
+Soon the attention faded away because the others became less interested in him. The only reason they came was because this was the youngest boy that Bubble, Sirius, Heles, Reverse, had ever seen. They were the same age.
+
+Although, Bubble stayed. Nobody thought Bubble was the type to like boys and stuff, even Sirius thought so. I guess we're all wrong. Because Bubble was talking and talking with Rigel. Since Rigel was the boy that could handle any type of 7 year old girl, he was also having a great time. Sirius just spied at Bubble in a tree to see what they would do. 
+
+Rigel and Bubble were both very pure. So when they parted ways, 3 hours later, Rigel and Bubble said: 
+
+"Bye!!! I like talking with you! Let's talk again!" said Bubble and Rigel. "And you can be next to my room when you choose your room! You can also sleep in my room! Bye!!!!" said Bubble. Rigel looked so happy. And so did Bubble. Sirius was starting to get jealous.
+
 Vega was getting a drink at Bubble Lake. Vega looked at Orion, blushed, then quickly ordered her drink. She was still blushing. Orion smiled, and was blushing too. After Vega quickly ran away and hid in the bush, she overheard Esper say:
 
 "That was Vega, right? Does she like you?" 
 
 And then Vega overheard Orion's answer to Esper's question.
 
-"I'm pretty sure Vega likes me, but I love her more."
+"I'm pretty sure Vega likes me, but I like her more."
 
 Vega tried not to make a noise, but she was shaking with joy and happiness. She couldn't stop her body moving. She felt too happy.
 
