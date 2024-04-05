@@ -329,11 +329,11 @@ Rigel could tell that they liked him, because of the attention he was getting. H
 
 Soon the attention faded away because the others became less interested in him. The only reason they came was because this was the youngest boy that Bubble, Sirius, Heles, Reverse, had ever seen. They were the same age.
 
-Although, Bubble stayed. Nobody thought Bubble was the type to like boys and stuff, even Sirius thought so. I guess we're all wrong. Because Bubble was talking and talking with Rigel. Since Rigel was the boy that could handle any type of 7 year old girl, he was also having a great time. Sirius just spied at Bubble in a tree to see what they would do. 
+Although, Bubble and Sirius stayed. Nobody thought Bubble or Sirius was the type to like boys and stuff, even they thought so. I guess we're all wrong. Because they were talking and talking with Rigel. Since Rigel was the boy that could handle any type of 7 year old girl, he was also having a great time.
 
-Rigel and Bubble were both very pure. So when they parted ways, 3 hours later, Rigel and Bubble said: 
+Rigel and Bubble and Sirius were all very pure. So when they parted ways, 3 hours later, Rigel and Bubble and Sirius said: 
 
-"Bye!!! I like talking with you! Let's talk again!" said Bubble and Rigel. "And you can be next to my room when you choose your room! You can also sleep in my room! Bye!!!!" said Bubble. Rigel looked so happy. And so did Bubble. Sirius was starting to get jealous.
+"Bye!!! I like talking with you! Let's talk again!" said Bubble and Rigel and Sirius. "And you can be next to my room when you choose your room! You can also sleep in my room! Bye!!!!" said Bubble and Sirius. Rigel looked so happy. And so did Bubble. So did Sirius.
 
 Vega was getting a drink at Bubble Lake. Vega looked at Orion, blushed, then quickly ordered her drink. She was still blushing. Orion smiled, and was blushing too. After Vega quickly ran away and hid in the bush, she overheard Esper say:
 
@@ -371,12 +371,12 @@ Now that everyone new had become used to Sunlight Town and the places near Sunli
 
 "We're done!" said everyone, a few hours later.
 
-On the first floor was Sansei, Crystal, Esper, Aves, Heles, Reverse, Rigel, Bubble, Sirius, Kitchen, Dining. (8)
+On the first floor was Sansei, Crystal, Esper, Aves, Heles, Reverse, Rigel, Bubble, Sirius, Kitchen, Dining. (9)
 
-On the second floor was Mist, Meru, Mira, Heather, Castor, Coffee Table, Shower. (5)
+On the second floor was Mist, Meru, Mira, Heather, Castor, Shower, Living Room, Study Room. (5)
 
 On the third floor was Matt, Kiwi, Haru, Flame, Kacchan, Calipi, Snow, Obsidian, Vega, Orion, Matt's Mirror. (10)
 
-On the fourth floor was Sansei, Matt, Storage, Shower (2)
+On the fourth floor was Sansei, Matt, Storage, Laundry Room, Shower, Guest Room. (2)
 
 On the fifth floor was Attic, Kacchan (1)
