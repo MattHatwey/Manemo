@@ -185,7 +185,7 @@ Other Manemos came to see what was going on.
   “Let’s go inside. It’s probably our castle.” said Matt.
 “Yeah!” said Sansei, Hatwey, and Honest.
 The castle already had all of the interior in place.
-10 pots, 20 carpets, 30 rooms, 2 dining rooms, 3 living rooms, 4 bathrooms, 3 kitchens, and a mirror.
+many pots, many carpets, many rooms, 1 dining room, 1 living room, 4 bathrooms, 1 kitchen, and a mirror.
 
   But this mirror wasn’t just a mirror. It was shining and looked magical.
   
