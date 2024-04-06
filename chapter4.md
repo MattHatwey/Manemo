@@ -371,12 +371,12 @@ Now that everyone new had become used to Sunlight Town and the places near Sunli
 
 "We're done!" said everyone, a few hours later.
 
-On the first floor was Sansei, Crystal, Esper, Aves, Heles, Reverse, Rigel, Bubble, Sirius, Kitchen, Dining. (9)
+On the first floor was Crystal, Esper, Aves, Heles, Reverse, Rigel, Bubble, Sirius, Kitchen, Dining. (8)
 
 On the second floor was Mist, Meru, Mira, Heather, Castor, Shower, Living Room, Study Room. (5)
 
-On the third floor was Matt, Kiwi, Haru, Flame, Kacchan, Calipi, Snow, Obsidian, Vega, Orion, Matt's Mirror. (10)
+On the third floor was Matt, Sansei, Kiwi, Haru, Flame, Kacchan, Calipi, Snow, Obsidian, Vega, Orion. (11)
 
-On the fourth floor was Sansei, Matt, Storage, Laundry Room, Shower, Guest Room. (2)
+On the fourth floor was Sansei, Matt, Hatwey, Honest, Rainflower, Ichigo, Choco, Wisteria, Earon, Storage, Matt's Mirror, Laundry Room, Shower. (9)
 
 On the fifth floor was Attic, Kacchan (1)
