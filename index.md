@@ -10,7 +10,7 @@
 
 [❄️☮️ CH 1 🔥✡️](chapter1.md)
 
-[ CH 2 ](chapter2.md)
+[🪄🪞 CH 2 🪄🪞](chapter2.md)
 
 [ CH 3 ](chapter3.md)
 
