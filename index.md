@@ -12,7 +12,7 @@
 
 [🪄🪞 CH 2 🪄🪞](chapter2.md)
 
-[ CH 3 ](chapter3.md)
+[💍 CH 3 💍](chapter3.md)
 
 [ CH 4 ](chapter4.md)
 
