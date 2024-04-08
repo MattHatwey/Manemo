@@ -4,7 +4,7 @@
 
 [♅ HOW TO USE THE WORD MANEMO ♅](README.md)
 
-[ CHARACTERS ](character.md)
+[✨ CHARACTERS ✨](character.md)
 
 [⚚ PREFACE ⚚](preface.md)
 
