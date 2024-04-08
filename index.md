@@ -1,10 +1,10 @@
-❄️☮️🔥✡️ Welcome to the first Manemo Webpage! ❄️☮️🔥✡️
+❄️☮️ Welcome to the Manemo Webpage! 🔥✡️
 
 ↓ Click on these links to see the story of Manemo! ↓
 
 [♅ HOW TO USE THE WORD MANEMO ♅](README.md)
 
-[❄️☮️ CHARACTERS 🔥✡️](character.md)
+[ CHARACTERS ](character.md)
 
 [⚚ PREFACE ⚚](preface.md)
 
