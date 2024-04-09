@@ -356,7 +356,7 @@ Flame once lived in a beatiful white world, along with a Manemo named Shirottori
 
 <Please Read Matt's Family Now>
 
-One day, Rainflower made her own breakfast and ate by herself. 
+One day in 2041, Rainflower made her own breakfast and ate by herself. 
 
 "What happened?" asked Matt and the others.
 
