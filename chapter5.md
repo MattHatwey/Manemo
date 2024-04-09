@@ -2,6 +2,10 @@ War. It was easy to start, but hard to end.
 
 Distant sirens, an ambulance, or a firetruck. Police cars were driving around. Manemos were running, and screaming. Only the injured ones. The others slept through the sound.
 
+For some reason, nobody could use magic, except for the Bad Manemos.
+
+Kacchan woke up 
+
 Kacchan heard the noise and started packing her belongings. She was packing, and thinking. "It they don't make it, what will happen to the memories and pictures that they had?" A tear dropped on her skirt. She collected the most valuable items. Then she started opening the doors of everyone's rooms and shouting: "WAR! RUN AWAY!!!!!!!"
 
 Obsidian quickly packed, and waited outside for Kacchan to come. She had brought everything valuable or something she thought was priceless, like the photo album they had made a few years back.
@@ -16,4 +20,4 @@ Snow was still very tired. It was 5:00AM now. Kiwi just sat on Snow's shoulder. 
 
 Kiwi brought a baggage cart from the airport. Kiwi sat on top of the many items Calipi and Snow and she brought with them.
 
-Orion woke up, and so did Vega.
+Orion woke up, and so did Vega. Vega and Orion 
