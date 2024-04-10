@@ -6,6 +6,8 @@ For some reason, nobody could use magic, except for the Bad Manemos.
 
 Until today, everything was fine. It was only a week after Vega and the others came.
 
+Matt 
+
 Kacchan woke up. 
 
 Kacchan heard the noise and started packing her belongings. She was packing, and thinking. "It they don't make it, what will happen to the memories and pictures that they had?" A tear dropped on her skirt. She collected the most valuable items. Then she started opening the doors of everyone's rooms and shouting: "WAR! RUN AWAY!!!!!!!"
@@ -48,4 +50,6 @@ Aves woke up. He gathered everything he and Esper and Crystal needed, then woke 
 
 Esper and Crystal hugged Aves, and thanked him for waking them up. Aves also hugged them back.
 
-Bubble woke up and so did Sirius. It was 5:30AM now. They gathered snacks, and their belongings.
+Bubble woke up and so did Sirius. It was 5:30AM now. They gathered snacks, and their belongings. They waited around for a minute or two, but they soon became impatient. They shook Rigel until he woke up, which he did. Rigel carried a few items, then they all ran towards the forest.
+
+Heles and Reverse were 
