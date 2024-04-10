@@ -94,10 +94,19 @@ Obsidian sat next to her, blankly looking at the sky...
 
 Flame stared at the sky, and thought of heaven. She smiled.
 
-Calipi looked at the buildings and houses from the now restored airport. She wished her home could be restored like that. 
+Calipi looked at the buildings and houses from the now restored airport. She wished her home could be restored like that. She felt sad.
 
 Snow looked at the sky blankly. He was reminded of the pirate and the boat. Then he was reminded of Shirottori-. He smiled, knowing that they were the same Manemo. 
 
-Kiwi looked down at the ground, and saw a sprout grow into a beautiful flower. She looked at it from her teary and blurry eyes. She closed her eyes.
+Kiwi looked down at the ground, and saw a sprout grow into a beautiful flower. She looked at it from her teary and blurry eyes. She closed her eyes. She thought Haru would be near the dock. She grew a Kiwi tree near the sea. She smiled through the tears.
 
-Vega star
+Vega stared at the stars. One star was Orion, and the other was Vega. She smiled as she saw the Orion star go near the Vega star. 
+
+Orion looked at Vega, smiling. Vega leaned against Orion. Orion pat her on the back.
+
+Heather looked at the sky, and smiled. She felt strange.
+
+Meru stared at everything come to life. He thought it was amazing. He liked it.
+
+Haru looked at her feet. She saw the airport and felt like Kiwi would be there. She grew a flower near the airport. She looked at the ground. She saw a Kiwi plant growing into a tree. She smiled for a second. Then she started to cry silently. Then she looked back at the airport. She smiled through the tears.
+
