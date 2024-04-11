@@ -114,4 +114,18 @@ Castor stared at everything come to life. He thought it was amazing. He liked it
 
 Mira was looking at everything. She was amazed. She was smiling. Sometimes she would be surprised.
 
-Mist watched the city return to its glory.
+Mist watched the city return to its glory. She was happy that everything was being fixed.
+
+Bubble smiled. She looked at Sirius and laughed.
+
+Sirius smiled. She looked at Bubble and laughed.
+
+Aves looked at the beautiful view as the buildings and houses repaired themselves. He smiled, knowing that Leaf would be there tomorrow to greet him.
+
+Esper looked around. He wished his life was better. He wanted his heart to feel fixed, just like the towns and cities. Crystal hugged him and said "I'm happy that I was born with you! I love you!" Esper cried, then smiled.
+
+Crystal watched Esper. Crystal wanted to help because her favorite person was down. Crystal hugged Esper. She said "I'm happy that I was born with you! I love you!". She watched Esper cry and smile.
+
+Heles watched as their house (Crystal Tower) was getting repaired. She smiled. She laughed and said "I'm glad that the houses are fixed!"
+
+Reverse stared at the beautiful constellations. Then, she looked at the sky.
