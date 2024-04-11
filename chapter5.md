@@ -100,9 +100,9 @@ Snow looked at the sky blankly. He was reminded of the pirate and the boat. Then
 
 Kiwi looked down at the ground, and saw a sprout grow into a beautiful flower. She looked at it from her teary and blurry eyes. She closed her eyes. She thought Haru would be near the dock. She grew a Kiwi tree near the sea. She smiled through the tears.
 
-Vega stared at the stars. One star was Orion, and the other was Vega. She smiled as she saw the Orion star go near the Vega star. 
+Vega stared at the stars. She thought about how scared she used to be, until Orion and the others came. Right when she was thinking about how Orion was there to comfort her even if she ran away, she smiled as she saw the Orion star go near the Vega star. 
 
-Orion looked at Vega, smiling. Vega leaned against Orion. Orion pat her on the back.
+Orion looked at Vega, smiling. Orion wished he knew Vega for longer, and wished he remembered what they did. Vega leaned against Orion. Orion pat her on the back.
 
 Heather looked at the sky, and smiled. She felt strange.
 
@@ -110,3 +110,8 @@ Meru stared at everything come to life. He thought it was amazing. He liked it.
 
 Haru looked at her feet. She saw the airport and felt like Kiwi would be there. She grew a flower near the airport. She looked at the ground. She saw a Kiwi plant growing into a tree. She smiled for a second. Then she started to cry silently. Then she looked back at the airport. She smiled through the tears.
 
+Castor stared at everything come to life. He thought it was amazing. He liked it. It felt just like the day he escaped together with Mira and the others.
+
+Mira was looking at everything. She was amazed. She was smiling. Sometimes she would be surprised.
+
+Mist watched the city return to its glory.
