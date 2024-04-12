@@ -128,4 +128,4 @@ Crystal watched Esper. Crystal wanted to help because her favorite person was do
 
 Heles watched as their house (Crystal Tower) was getting repaired. She smiled. She laughed and said "I'm glad that the houses are fixed!"
 
-Reverse stared at the beautiful constellations. Then, she looked at the sky.
+Reverse stared at the beautiful constellations. Then, she looked at the sky. She saw the beautiful view and smiled.
