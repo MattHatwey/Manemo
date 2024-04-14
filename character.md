@@ -64,19 +64,9 @@ Matt and Sansei’s Friends (2024/1)
 
 -Wisteria (Born:2010/12/5 Age:14
 
--Starflower (Born:2005/10/5 Age:19
-
--Pearlflower (Born:2005/6/1 Age:19
-
--Rainbow (Born:2005/3/24 Age:19
-
 -Paradise (Born:2005/5/2 Age:19
 
 -F.S. (Born:2010/3/29 Age:14
-
--Truth (Born:2005/8/6 Age:19
-
--Freedom (Born:2005/6/28 Age:19
 
 -Love (Born:2010/2/14 Age:14
 
@@ -123,8 +113,6 @@ Matt and Sansei’s Friends (2024/1)
 -Enchendaria (Born:0? Age♾️?
 
 -Kuzukun (Born:2010/1/3 Age:14
-
--GumiAke-San! 
 
 -Reton (Palette) (Born:2010/8/25 Age:14
 
@@ -174,11 +162,11 @@ Matt and Sansei’s Friends (2024/1)
 
 -King of Hearts
 
+CRYSTAL
+
 -garnet (Born:2000/ Age:23
 
 -amethyst (Born:2000/ Age:23
-
-CRYSTAL
 
 -aquamarine
 
