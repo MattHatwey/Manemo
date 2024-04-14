@@ -64,8 +64,6 @@ Matt and Sansei’s Friends (2024/1)
 
 -Wisteria (Born:2010/12/5 Age:14
 
--Paradise (Born:2005/5/2 Age:19
-
 -F.S. (Born:2010/3/29 Age:14
 
 -Love (Born:2010/2/14 Age:14
