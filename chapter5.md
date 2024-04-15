@@ -116,6 +116,8 @@ Mira was looking at everything. She was amazed. She was smiling. Sometimes she w
 
 Mist watched the city return to its glory. She was happy that everything was being fixed.
 
+Rigel thought of his life. He laughed at how strange his life was.
+
 Bubble smiled. She looked at Sirius and laughed.
 
 Sirius smiled. She looked at Bubble and laughed.
@@ -129,3 +131,27 @@ Crystal watched Esper. Crystal wanted to help because her favorite person was do
 Heles watched as their house (Crystal Tower) was getting repaired. She smiled. She laughed and said "I'm glad that the houses are fixed!"
 
 Reverse stared at the beautiful constellations. Then, she looked at the sky. She saw the beautiful view and smiled.
+
+The sun rose higher as Matt, Sansei, and the others walked in the town. Good Manemos from all over the place ran towards them.
+
+Haru ran toward the airport. Kiwi ran toward the dock. They couldn't find each other. They looked up at each other. They smiled. They were next to each other the whole time. Calipi looked for Kiwi. Snow ran after Calipi.
+
+Kacchan, Obsidian, and Flame rushed to the Crystal Tower. Bubble and Sirius saw them, and quickly told Mist and Rigel. Mist ran toward the Crystal tower with them. Rigel ran towards Castor and Mira. They ran to the Crystal tower. Soon, Meru was in the race too. Heather ran after Haru.
+
+Crystal smiled at Esper. Esper also smiled. Aves waved at them, then ran to Leaf in the village, waiting for him. Heles watched as Everyone came toward Crystal tower. Orion and Vega walked slowly. Vega smiled. Orion smiled. They blushed.
+
+Every Good Manemo went stood infront the Crystal Tower. Nobody went in.
+
+Legendaria appeared. So did Legendarius and Enchendaria.
+
+Legendaria flew on to the sun.
+
+Legendarius flew to the moon. 
+
+Enchendaria smiled, and became Leaf. Aves stared in disbelief. Enchendaria ran to Aves, and whispered "I am the bird docter." Aves grabbed Leaf. Leaf laughed as she escaped easily from the grip of Aves. Enchendaria flew back to the stars. 
+
+Orion waved at Enchendaria. Enchendaria looked at him. Enchendaria grabbed Vega and quickly grabbed Orion. She left Orion and Vega on the stars. Vega smiled. Orion also smiled. Rigel soon arrived. Finally, Castor and Mira also came. 
+
+Enchendaria was the master of disguise. She summoned a clone of herself. The two Enchendarias stared at each other. They touched each other's hand. They became Greenstar and Galaxystar. 
+
+Matt stared at Enchendaria. So did every Manemo. 
