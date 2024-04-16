@@ -88,6 +88,8 @@ Family of Matt's team (Besides kids) (2024/1) 💎 💫 💟 📜 🪐 💠 💍
 
 -Old Queendarudo ?
 
+-Pescarudo ?
+
 Idols (2035/1) 🩰🌈💡 🌺 💜 ⭐️ 💖
 
 -Pink (Kacchan) (Born:2022/6/6 Age:13
