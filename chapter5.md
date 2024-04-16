@@ -155,3 +155,9 @@ Orion waved at Enchendaria. Enchendaria looked at him. Enchendaria grabbed Vega 
 Enchendaria was the master of disguise. She summoned a clone of herself. The two Enchendarias stared at each other. They touched each other's hand. They became Greenstar and Galaxystar. 
 
 Matt stared at Enchendaria. So did every Manemo. 
+
+Enchendaria smiled, and became a red peekaboo. 
+
+The Peekaboos of color laughed and smiled because they knew their friend was Enchendaria.
+
+Next, Enchendaria looked at Legendaria. Legendaria shook her head (sideways). Enchendaria looked away. Legendarius beamed with joy. Legendarius flew to Enchendaria and told her something. Enchendaria looked and smiled. Enchendaria flew down and caught Pescarudo,  
