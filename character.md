@@ -1,4 +1,4 @@
-Matt’s Family (2035/1) ❄️☮️
+Matt’s Family (2035/1) ❄️ ☮️
 
 ❅❄︎ 𝔪𝔞𝔱𝔱 ❅❄︎ (Born:2000/11/15-12/12 Age:34
 
@@ -48,7 +48,7 @@ Matt’s Family (2035/1) ❄️☮️
 
 ⚖︎✝︎ 𝑭𝒍𝒂𝒎𝒆 ⚖︎✝︎ (Born:2032/10/10 Age:3
 
-Matt's team (2024/1) ❄️☮️🔥🪄🌴🍓🍫💜🌪
+Matt's team (2024/1) ✨⭐️ ❄️ ☮️ 🔥 🪄 🌴 🍓 🍫 🔮 🌪 ⭐️✨
 
 -Matt (Born:2000/11/15-12/12 Age:23
 
@@ -68,7 +68,7 @@ Matt's team (2024/1) ❄️☮️🔥🪄🌴🍓🍫💜🌪
 
 -Wisteria (Born:2010/12/5 Age:14
 
-Family of Matt's team (Besides kids) (2024/1) 💠💎
+Family of Matt's team (Besides kids) (2024/1) 💎 💫 💟 📜 🪐 💠 💍 🎃 🏵 
 
 -Prince (Born:1986/6/21 Age:41
 
@@ -88,7 +88,7 @@ Family of Matt's team (Besides kids) (2024/1) 💠💎
 
 -Old Queendarudo ?
 
-Idols (2035/1) 🩰🌈💡
+Idols (2035/1) 🩰🌈💡 🌺 💜 ⭐️ 💖
 
 -Pink (Kacchan) (Born:2022/6/6 Age:13
 
@@ -98,7 +98,7 @@ Idols (2035/1) 🩰🌈💡
 
 -Love (Born:2022/2/14 Age:13
 
-Legends 🔮✨
+Legends 🔮✨📜 ☀️ 🌙 🔯 🟢 🟣 💝
 
 -Legendaria
 
@@ -112,7 +112,7 @@ Legends 🔮✨
 
 -Pescarudo
 
-Enchendaria's Transformations 🪄✨
+Enchendaria's Transformations 🔯🪄✨ 🌟 ♥️ 🍃 🟢 🟣 🌌
 
 -Star
 
@@ -124,7 +124,9 @@ Enchendaria's Transformations 🪄✨
 
 -Galaxystar
 
-Candy Land! (2024/1) 🍫🍬🍭🍪🍩
+-Midnight Gray
+
+Candy Land! (2024/1) 🍦🦋 🍦🎀 🎵💜 🍫 ⚪️ 🗑
 
 -Ai (Born:2017/5/5 Age:6
 
@@ -138,7 +140,7 @@ Candy Land! (2024/1) 🍫🍬🍭🍪🍩
 
 -Kuzukun (Born:2010/1/3 Age:14
 
-Peekaboos🐥🐣🐤⭐️💛
+Peekaboos🐥🐣 💛 🟨 ⬜️ 🥛 🍨 🍪🍫 🍪🥠 🔑 🔒
 
 -Peekaboo
 
@@ -154,7 +156,33 @@ Peekaboos🐥🐣🐤⭐️💛
 
 -Cookie
 
--Blue Peekaboo
+-Mirdskey
+
+-Mirdslock
+
+-Pink Peekaboo (Cherry Peekaboo)
+
+-Orange Peekaboo (California Poppy Peekaboo)
+
+-Yellow Peekaboo (Dandelion Peekaboo)
+
+-Green Peekaboo (Grass Peekaboo)
+
+-Light Blue Peekaboo (Sky Peekaboo)
+
+-Blue Peekaboo (Water Peekaboo)
+
+-Purple Peekaboo (Lavender Peekaboo)
+
+-Magenta Peekaboo (Petunia Peekaboo)
+
+-White Peekaboo (Snow Peekaboo)
+
+-Gray Peekaboo (Rock Peekaboo)
+
+-Black Peekaboo (Night Sky Peekaboo)
+
+-Rainbow Peekaboo 
 
 -Red Peekaboo (Enchendaria)
 
@@ -188,7 +216,7 @@ Boaz the Bird 🐦🦜💙💠💎
 
 -F.S. (Born:2010/3/29 Age:15
 
-Easter Land!
+Easter Land!🐣🥚🍭🍬🌈🍯👑⭐️
 
 -Reton (Palette) (Born:2010/8/25 Age:14
 
@@ -197,6 +225,8 @@ Easter Land!
 -Pastel (Born:2010/2/15 Age:14
 
 -Platius (Born:2010/2/15 Age:14
+
+Masa's Journey🌃 🎆 🎇 🌇
 
 -Masa
 
