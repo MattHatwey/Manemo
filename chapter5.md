@@ -160,4 +160,57 @@ Enchendaria smiled, and became a red peekaboo.
 
 The Peekaboos of color laughed and smiled because they knew their friend was Enchendaria.
 
-Next, Enchendaria looked at Legendaria. Legendaria shook her head (sideways). Enchendaria looked away. Legendarius beamed with joy. Legendarius flew to Enchendaria and told her something. Enchendaria looked and smiled. Enchendaria flew down and caught Pescarudo,  
+Next, Enchendaria looked at Legendaria. Legendaria shook her head (sideways). Enchendaria looked away. 
+
+Legendarius suddenly beamed with joy. Legendarius flew to Enchendaria and told her something. Enchendaria looked and smiled. Enchendaria flew down and caught Pescarudo, who hid away. Pescarudo was Kingdarudo and Queendarudo's child. But she could not use magic. She was teased by. She soon learned to do magic better than anyone, but she kept telling herself she was horrible.
+
+Enchendaria looked at Pescarudo. Pescarudo tried to fly away. Enchendaria caught her. Enchendaria casted a magic spell to make Pescarudo feel good. She soon understood. 
+
+Pescarudo flew into the sky. She shot fireworks in the air follow behind her. She laughed. So did everyone. 
+
+Enchendaria looked back at Legendaria. She nodded (she gave in). Enchendaria fell down and everyone tried to catch her. Enchendaria just floated there. Enchendaria looked at everybody and said:
+
+"Do you know the story of Midnight Gray?"
+
+"No..." said a few. Others started to look sad.
+
+"I will tell you." said Enchendaria.
+
+"July 23rd. About 18:30pm, Greenstar and Galaxystar found a baby bird near a tree. The tree was very tall and her nest would be somewhere very high. She was shivering on the ground but she was not injured. They put her in a small box and brought her back home, since it was getting dark.
+
+The Next Morning.
+
+8:20am, she started chirping very loudly. They put a box on the bushes in the front yard. The baby bird kept chirping so loud. Immediately some birds came to see her with the same loud chirps. They were very cautiously sitting on the edge of the box. And finally the mama bird came into the box to feed the baby bird. The mom bird had come into the box, and the bird was eating some food.
+
+July 25th.
+8:50am, Greenstar went to look at the bird but the bird looked like it was dead and he was very sad. Until Galaxystar said that the bird will always live in their heart. " said Enchendaria.
+
+"Her name was Midnight Gray." said Legendaria.
+
+"There used to be a celebration. Until her grave was broken. Nobody knows when that happened. I guess it was the first war." said Legendarius.
+
+Pescarudo raised her one hand and grasped something in the air. She opened her hand. It floated in the air. 
+
+Everyone was surprised.
+
+"I just made it for Midnight Gray." she said, smiling.
+
+"How?" asked Legendaria.
+
+"Beach Glass... Is there something wrong?" asked Pescarudo.
+
+"No..." said Legendaria.
+
+"Actually..." said Legendarius.
+
+"What?" asked Pescarudo.
+
+"Beach Glass are shards of memories. Maybe you collected a single piece of Midnight Gray's memory?" said Legendaria and Legendarius.
+
+Pescarudo smiled. She made more. She tried again. They all worked. There were three. One for Legendaria. One for Legendarius. One for Enchendaria. Pescarudo held a star made out of yellow beach glass.
+
+"Let us make a grave." said Legendaria.
+
+Everyone started working on the grave. Matt dug, and Sansei brought shovels everytime the shovels would break. Others were planting flowers, adding the stone, bringing beach glass, looking for memories, writing the words, or calling for their kids to help too.
+
+Legendaria smiled. So did everyone else.
