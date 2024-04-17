@@ -142,7 +142,7 @@ Candy Land! (2024/1) 🍦🦋 🍦🎀 🎵💜 🍫 ⚪️ 🗑
 
 -Kuzukun (Born:2010/1/3 Age:14
 
-Peekaboos🐥🐣 💛 🟨 ⬜️ 🥛 🍨 🍪🍫 🍪🥠 🔑 🔒
+Peekaboos/Mirds🐥🐣 💛 🟨 ⬜️ 🥛 🍨 🍪🍫 🍪🥠 🔑 🔒
 
 -Peekaboo
 
@@ -161,6 +161,8 @@ Peekaboos🐥🐣 💛 🟨 ⬜️ 🥛 🍨 🍪🍫 🍪🥠 🔑 🔒
 -Mirdskey
 
 -Mirdslock
+
+-Midnight Gray
 
 -Pink Peekaboo (Cherry Peekaboo)
 
