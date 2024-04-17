@@ -68,7 +68,7 @@ Matt's team (2024/1) ✨⭐️ ❄️ ☮️ 🔥 🪄 🌴 🍓 🍫 🔮 🌪 
 
 -Wisteria (Born:2010/12/5 Age:14
 
-Family of Matt's team (Besides kids) (2024/1) 💎 💫 💟 📜 🪐 💠 💍 🎃 🏵 💝
+Family of Matt's team (Besides kids) 💎 💫 💟 📜 🪐 💠 💍 🎃 🏵 💝
 
 -Prince (Born:1986/6/21 Age:41
 
@@ -216,7 +216,21 @@ Boaz the Bird 🐦🦜💙💠💎
 
 -Naomi 
 
+Kyuusei
 
+-Arabelle
+
+-Issei
+
+-Leila
+
+-Sansei
+
+-Moko Sensei
+
+-Ichigo
+
+-Ichigo Obasan
 
 -F.S. (Born:2010/3/29 Age:15
 
@@ -240,6 +254,8 @@ Masa's Journey🌃 🎆 🎇 🌇
 
 -Masa's Mom (Name unknown)
 
+Magic Book (Suzu) 📖🪄🔮⭐️
+
 -Suzu
 
 -Ran
@@ -250,6 +266,8 @@ Masa's Journey🌃 🎆 🎇 🌇
 
 -Kiki
 
+C♠︎rd (CARD) ♥️♦️♠️♣️🃏
+
 -Ace Spade
 
 -Mitubano Clover
@@ -258,147 +276,25 @@ Masa's Journey🌃 🎆 🎇 🌇
 
 -King of Hearts
 
-CRYSTAL
+Pets 🐥🐧🦜🐈🐠🦋🐔🐕🦔
 
--garnet (Born:2000/ Age:23
+-Ichigodori (Ichigo)
 
--amethyst (Born:2000/ Age:23
+-Na-ko (Matt)
 
--aquamarine
+-Kuku (Sansei)
 
--diamond
+-Name (Wisteria)
 
--emerald 
+-Lily (Hatwey)
 
--pearl
+-Purin (Onpurin)
 
--ruby
+-Pentama (Haru)
 
--peridot
+-Rui (FS)
 
--sapphire
-
--opal
-
--topaz
-
--turquoise
-
--lapis
-
--jade
-
--tourmaline
-
--corrundum
-
--moonstone
-
--vivianite
-
--sunstone
-
--bloodstone
-
--serpentine
-
--citrine
-
--nuummite
-
--black pearl
-
--calcite
-
--coral
-
--selenite
-
--scolecite
-
--carnelian
-
--cassiterite
-
--pietersite
-
--spinel
-
--star sapphire
-
--ametrine
-
--agate
-
--ammolite
-
--andalusite
-
--chrysocolla
-
--labradorite
-
--mother of pearl
-
--flourite
-
--mystic topaz
-
--mystic quartz
-
--opal doublet
-
--rainbow pirite
-
--rhodochrosite
-
--spectrolite
-
--malaya garnet
-
--rubellite
-
--sugillite
-
--chalcedony
-
--charoite
-
--tanzanite
-
--bizmuth (Born:2000/ Age:23
-
--quartz (Born:2000/ Age:23
-
--amber (Born:2000/ Age:23
-
-Pets
-
--Hatopoppo 
-
--Ichigodori
-
--Ran 
-
--Kaineko 
-
--Na-ko 
-
--Souneko 
-
--Kuku
-
--Name 
-
--Lily (Born: Age:
-
--Purin (Born: Age:
-
--Pentama (Born: Age:
-
--Rui (Born: Age:
-
--Dominic (Born: Age:
+-Dominic (FS)
 
 SPECIAL! Gods and Godesses
 
