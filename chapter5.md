@@ -207,10 +207,18 @@ Everyone was surprised.
 
 "Beach Glass are shards of memories. Maybe you collected a single piece of Midnight Gray's memory?" said Legendaria and Legendarius.
 
-Pescarudo smiled. She made more. She tried again. They all worked. There were three. One for Legendaria. One for Legendarius. One for Enchendaria. Pescarudo held a star made out of yellow beach glass.
+Pescarudo smiled. She made more. She tried again. They all worked. There were three. One for Kingdarudo. One for Queendarudo. One for Pescarudo.
 
 "Let us make a grave." said Legendaria.
 
 Everyone started working on the grave. Matt dug, and Sansei brought shovels everytime the shovels would break. Others were planting flowers, adding the stone, bringing beach glass, looking for memories, writing the words, or calling for their kids to help too.
 
 Legendaria smiled. So did everyone else.
+
+F.S. suddenly said "I wish everyone in Kyuusei who died had graves too. I haven't met a single Manemo who was in Kyuusei ever!".
+
+Sansei and Issei looked in shock. Leila laughed. "We are from there." said Arabelle, laughing. Moko Sensei smiled. "Is that you, F.S.?" Moko Sensei said. F.S. smiled back, and said "YES!". Ichigo hugged her. F.S. hugged back. Rui and Dominic stared, happily.
+
+Pescarudo flew up to the skies. Kingdarudo and Queendarudo smiled, then flew up with her. The two had been watching Pescarudo's spectacular performance.
+
+Legendarius sat next to the grave. Legendaria looked up. Enchendaria was playing with the Peekaboos of color.
