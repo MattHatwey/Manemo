@@ -222,3 +222,19 @@ Sansei and Issei looked in shock. Leila laughed. "We are from there." said Arabe
 Pescarudo flew up to the skies. Kingdarudo and Queendarudo smiled, then flew up with her. The two had been watching Pescarudo's spectacular performance.
 
 Legendarius sat next to the grave. Legendaria looked up. Enchendaria was playing with the Peekaboos of color.
+
+Pescarudo, Kingdarudo, and Queendarudo flew in a circle, holding hands. They spun faster and faster. They then touched the 3 Beach Glass pieces together. 
+
+The sky glowed and the sun rose higher and higher. The sky was clear with no clouds.
+
+Enchendaria transformed into Midnight Gray. 
+
+"Hello. I am the real Midnight Gray. Thank you for bringing me back to Manemo Land." said Midnight Gray. 
+
+In a second Midnight Gray disappeared. Then she reappeared. Midnight Gray and Enchendaria sat together.
+
+The Manemos watched happily. 
+
+"Should we introduce our selves for the newcomers?" asked Legendaria, looking toward Rigel, then closed her eyes. Rigel knew that she knew he wasn't a newcomer, but didn't know anybody.
+
+Matt, Sansei, Hatwey, Honest, Rainflower, Earon, Wisteria, Choco, and Ichigo came first. "We are a team of five, and we all live in the Crystal Tower."
