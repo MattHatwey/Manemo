@@ -379,4 +379,4 @@ On the third floor was Matt, Sansei, Kiwi, Haru, Flame, Kacchan, Calipi, Snow, O
 
 On the fourth floor was Sansei, Matt, Hatwey, Honest, Rainflower, Ichigo, Choco, Wisteria, Earon, Storage, Matt's Mirror, Laundry Room, Shower. (9)
 
-On the fifth floor was Attic, Kacchan (1)
+On the fifth floor was Attic, Kacchan (Shower, Kitchen, etc.) (1)
