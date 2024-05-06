@@ -60,6 +60,8 @@ Bubble woke up and so did Sirius. It was 5:30AM now. They gathered snacks, and t
 
 Heles and Reverse were next to leave. They packed a few items, looked for anything else they might need, and looked in everyone's rooms. They were last to leave. They stayed in the crystal tower.
 
+It was 6:00AM now.
+
 Meanwhile, Matt, Sansei, Hatwey, and Honest were in a weird place. They were in a strange box. Matt was in the grass, Sansei in the ocean, Hatwey was in the snow, and Honest was in the desert.
 
 Matt found a heart in the middle of the grassy area. He touched it, and he felt warm. He saw the broken diamond. He looked at it, and touched it. He was surrounded by warm objects. The diamond spun around, and Matt touched it. Suddenly it became cold again. He was in a cave.
@@ -85,6 +87,8 @@ Suddenly, Legendaria appeared. "I cannot help you. Please do not give up. I beli
 Matt looked at the sky. So did the others. Then, suddenly, Pattern and Arabelle and the Prince appeared. They used their magic to kill the Bad Manemos. Greenstar and Galaxystar appeared. They also helped to kill the Bad Manemos.
 
 The Bad Manemos were gone. Greenstar and Galaxystar disappeared.
+
+It was now 7:00AM.
 
 Matt looked around. The houses and buildings were all restored. Everything was back to normal. The smoke and fire was gone. The sky was beautiful. It was dawn, but stars were shining brightly. The moon and sun rose. The clouds were pink and yellow. They saw a large pink and yellow cloud with windows. It was like a city. Matt said "Look, It's Kirari-Machi(Shining City)! I call it that.".
 
@@ -141,6 +145,10 @@ Kacchan, Obsidian, and Flame rushed to the Crystal Tower. Bubble and Sirius saw 
 Crystal smiled at Esper. Esper also smiled. Aves waved at them, then ran to Leaf in the village, waiting for him. Heles watched as Everyone came toward Crystal tower. Orion and Vega walked slowly. Vega smiled. Orion smiled. They blushed.
 
 Every Good Manemo went stood infront the Crystal Tower. Nobody went in.
+
+A bell rang. It was Legendaria, holding a giant bell. 
+
+It was 8:00AM now.
 
 Legendaria appeared. So did Legendarius and Enchendaria.
 
@@ -211,7 +219,7 @@ Pescarudo smiled. She made more. She tried again. They all worked. There were th
 
 "Let us make a grave." said Legendaria.
 
-Everyone started working on the grave. Matt dug, and Sansei brought shovels everytime the shovels would break. Others were planting flowers, adding the stone, bringing beach glass, looking for memories, writing the words, or calling for their kids to help too.
+Everyone started working on the grave. Matt dug, and Sansei brought shovels everytime the shovels would break. Others were planting flowers, adding the stone, bringing beach glass, looking for memories, writing the words, or calling for their kids to help too. They finished 2 hours later, at 10:00AM.
 
 Legendaria smiled. So did everyone else.
 
@@ -245,9 +253,9 @@ A few more introduced themselves.
 
 After that was the members of Easter Land and Harvest Time.
 
-This went on for a few hours.
-
 Last was Mira, Castor, Rigel, Vega, and Orion.
+
+This went on for maybe 5 hours, until 3:30PM.
 
 "Should we eat lunch? I'm kinda hungry..." said a few Manemos. Legendaria agreed.
 
@@ -285,5 +293,10 @@ Aves sat in the marriage proposal posision. Manemos were all around watching who
 
 Leaf was always a very busy Manemo, so sadly, Leaf was unable to move to Aves and the others. She lived in Cloud City. Aves and the others lived in Sunlight Town. They were pretty far away. But Manemo Land had chat, voicemail, calls, texts, mail, etc.
 
+The parade had already gone for a solid 3 hours. Some went back home, others stayed. It was 6:30PM now.
 
+Some people wanted to stay until the night festival. Others wanted a quick rest before the night festival. But nobody wanted to miss it.
 
+It was now 8:30PM. The night festival had started.
+
+Legendaria looked at the skies.
