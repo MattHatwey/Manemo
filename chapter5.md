@@ -237,4 +237,7 @@ The Manemos watched happily.
 
 "Should we introduce our selves for the newcomers?" asked Legendaria, looking toward Rigel, then closed her eyes. Rigel knew that she knew he wasn't a newcomer, but didn't know anybody.
 
-Matt, Sansei, Hatwey, Honest, Rainflower, Earon, Wisteria, Choco, and Ichigo came first. "We are a team of five, and we all live in the Crystal Tower."
+Matt, Sansei, Hatwey, Honest, Rainflower, Earon, Wisteria, Choco, and Ichigo came first. "We are a team of 9, and we all live in the Crystal Tower."
+
+
+
