@@ -235,9 +235,55 @@ In a second Midnight Gray disappeared. Then she reappeared. Midnight Gray and En
 
 The Manemos watched happily. 
 
-"Should we introduce our selves for the newcomers?" asked Legendaria, looking toward Rigel, then closed her eyes. Rigel knew that she knew he wasn't a newcomer, but didn't know anybody.
+"Should we introduce our selves for the newcomers?" asked Legendaria, looking toward Rigel, then closed her eyes, and smiled. Rigel knew that she knew he wasn't a newcomer, but didn't know anybody.
 
 Matt, Sansei, Hatwey, Honest, Rainflower, Earon, Wisteria, Choco, and Ichigo came first. "We are a team of 9, and we all live in the Crystal Tower."
+
+Next were Matt's children.
+
+A few more introduced themselves.
+
+After that was the members of Easter Land and Harvest Time.
+
+This went on for a few hours.
+
+Last was Mira, Castor, Rigel, Vega, and Orion.
+
+"Should we eat lunch? I'm kinda hungry..." said a few Manemos. Legendaria agreed.
+
+Everyone quickly prepared their own picnic areas. Everyone sat next to each other, talking about news, gossiping, laughing, running around, etc. Crystal quickly prepared Bubble Lake Boba's selling stands. A lot of other Manemos also started setiing up shops. 
+
+"Bake Sale!" said Moko-Sensei, holding a big metal tray of delicious treats. Macarons, Cream Puffs, Breads, Croissants, Sandwiches, Pies, Cupcakes, Normal Cakes, Icing Cookies, Cookies, Marzipan Desserts, and so much more! The Bake Sale soon ended because of the amount of Manemos who wanted the treats. Moko-Sensei soon made more for everyone. The Manemos happily ate, drank, and ran around. 
+
+"Healthy Foods!" said Leaf. Aves came immediatly, and grabbed her.
+
+"Enchendaria. Show me the real Leaf! The Bird Docter." Aves shook her.
+
+Enchendaria stared. She was very surprised.
+
+She found something in her pocket and summoned the real Leaf for the second time ever.
+
+"I still remember all the memories with you while I was Enchendaria." said Leaf, smiling.
+
+Aves smiled, too.
+
+"Healthy Foods!" said Aves and Leaf, smiling. 
+
+Everyone came to eat Salads, Bread, Avocado Toasts, Fruit Salad, and so much more!
+
+Aves invited Leaf to Bubble Lake Boba. The two decided on the same drink. They ordered one drink, and two straws. They drank the Boba Tea together. Right as Leaf was going to dig in her pockets to find money, or anything to give to Crystal, Aves stopped her, and handed Crystal a few coins. Crystal smiled and said "Come again, Aves, and... Leaf!"
+
+Leaf and Aves smiled. Aves started picking up random flowers. "Do you like somebody?" asked Leaf, a little sadly, knowing it wasn't her that he liked. Aves smiled and stared at Leaf. "Yes." Leaf frowned, because she still thought it was not her that he liked. "I'm going to give it to her once I'm done making it." said Aves. 
+
+A few minutes later, Aves finished. "I'm done!". He smiled.
+
+Leaf looked around for any other Manemos, to see who Aves wanted to give the bouquet to.
+
+Aves sat in the marriage proposal posision. Manemos were all around watching who he would give the bouquet to. Aves gently pulled out a beautiful jade ring, and on the gold ring itself, the words were embed, LEAF. Aves gave it to Leaf, and then gave her the bouquets.
+
+"How?" said Leaf. "I always loved you." said Aves. "From that first day when we met, to the times I was talking to Enchendaria. I always, always, loved you more than anything in the world. Leaf was in complete shock. Then she smiled.
+
+Leaf was always a very busy Manemo, so sadly, Leaf was unable to move to Aves and the others. She lived in Cloud City. Aves and the others lived in Sunlight Town. They were pretty far away. But Manemo Land had chat, voicemail, calls, texts, mail, etc.
 
 
 
