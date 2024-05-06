@@ -297,6 +297,8 @@ The parade had already gone for a solid 3 hours. Some went back home, others sta
 
 Some people wanted to stay until the night festival. Others wanted a quick rest before the night festival. But nobody wanted to miss it.
 
-It was now 8:30PM. The night festival had started.
+It was now 8:30PM. Manemos who stayed near the area the whole time started preparing the night festival.
 
-Legendaria looked at the skies.
+Manemos started pouring in at about 8:50PM. A few Manemos arrived earlier.
+
+All the Manemos were there by 9:10PM. The festival was going to start at 9:30PM, but since everyone had already arrived, they started early.
