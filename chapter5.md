@@ -302,4 +302,3 @@ It was now 8:30PM. Manemos who stayed near the area the whole time started prepa
 Manemos started pouring in at about 8:50PM. A few Manemos arrived earlier.
 
 All the Manemos were there by 9:10PM. The festival was going to start at 9:30PM, but since everyone had already arrived, they started early.
-
