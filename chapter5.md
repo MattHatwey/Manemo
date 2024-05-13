@@ -302,3 +302,27 @@ It was now 8:30PM. Manemos who stayed near the area the whole time started prepa
 Manemos started pouring in at about 8:50PM. A few Manemos arrived earlier.
 
 All the Manemos were there by 9:10PM. The festival was going to start at 9:30PM, but since everyone had already arrived, they started early.
+
+Manemos started eating, playing, running, looking at the sky, etc. Leaf and Aves look at the sky and smile at each other. Some Manemos were selling stuff.
+
+"Blue Peekaboo's Slime! Selling now!!!" 
+
+"Bake sale! Bake sale!"
+
+"We're selling books! New signed books!"
+
+"Selling pencilcases!!!"
+
+Everyone was buying. 
+
+Snow looked down and saw a note on the ground. He picked it up. It was a little scribble of a pirate with wings flying away from a pirate ship. Snow looked around and saw a boy holding the same pack of notes. Snow gave the boy the note. The boy smiled, before saying "Thank you! That was my drawing!" He went running off happily. Snow looked and smiled. 
+
+Suddenly the boy reappeared. "Strange isn't it? Why would I know about Shirottori-?" He said. Snow jumped. "Where did you come from? Who are you?!"
+
+"I guess you don't know either. Nobody does." He made a fake smile. 
+
+"I'm Rigel."
+
+He dissapeared.
+
+Snow stared. The notes were all on the ground. Snow saw all the little scribbles. One of a girl crying in a burning village holding a picture of her sister. Next was a picture of a girl finding shelter under an old advertise sign. She was laughing for some bizzare reason. Then he 
