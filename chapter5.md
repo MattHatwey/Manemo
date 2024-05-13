@@ -325,4 +325,48 @@ Suddenly the boy reappeared. "Strange isn't it? Why would I know about Shirottor
 
 He dissapeared.
 
-Snow stared. The notes were all on the ground. Snow saw all the little scribbles. One of a girl crying in a burning village holding a picture of her sister. Next was a picture of a girl finding shelter under an old advertise sign. She was laughing for some bizzare reason. Then he 
+Snow stared. The notes were all on the ground. Snow saw all the little scribbles. 
+
+One of a girl crying in a burning village holding a picture of her sister. 
+
+Next was a picture of a girl finding shelter under an old advertise sign. She was laughing for some bizzare reason. 
+
+Then he saw a picture of a boy looking at a girl in the clouds.
+
+Next he saw a girl in a corner looking very scared and there were hundreds of strange things looking at her.
+
+snow
+
+orion
+
+heather
+
+castor 
+
+meru
+
+mist 
+
+mira
+
+aves
+
+esper
+
+crystal
+
+sirius
+
+bubble
+
+rigel
+
+heles 
+
+reverse
+
+haru
+
+kiwi
+
+flame
