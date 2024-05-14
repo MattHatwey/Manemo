@@ -60,11 +60,11 @@ Matt's team (2024/1) ✨⭐️ ❄️ ☮️ 🔥 🪄 🌴 🍓 🍫 🔮 🌪 
 
 -Rainflower (Born:2005/4/6 Age:19
 
--Ichigo (Born:2010/1/5 Age:14
+-Ichigo (Born:2016/1/5 Age:8
 
 -Earon (Born:2010/12/16 Age:14
 
--Choco (Born:2010/2/14 Age:14
+-Choco (Born:2016/2/14 Age:8
 
 -Wisteria (Born:2010/12/5 Age:14
 
