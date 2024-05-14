@@ -18,6 +18,8 @@
 
 [ CH 5 ](chapter5.md)
 
+[ CH 6 ](chapter6.md)
+
 [ MATT AND SANSEI'S FAMILY ](mattkids.md)
 
 More stories about Manemo coming soon!
