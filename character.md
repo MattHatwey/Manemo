@@ -94,9 +94,9 @@ Idols (2035/1) 🩰🌈💡 🌺 💜 ⭐️ 💖
 
 -Pink (Kacchan) (Born:2022/6/6 Age:13
 
--Mirage (Born:2022/6/6 Age:13
+-Mirage (Born:2022/1/9 Age:13
 
--Lemon (Peekaboo) (Born:8/1 Age:?
+-Lemon (Peekaboo) (Born:7/29 Age:?
 
 -Love (Born:2022/2/14 Age:13
 
