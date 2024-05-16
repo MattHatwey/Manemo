@@ -333,15 +333,15 @@ Next was a picture of a girl finding shelter under an old advertise sign. She wa
 
 Then he saw a picture of a boy looking at a girl in the clouds.
 
-Next he saw a girl in a corner looking very scared and there were hundreds of strange things looking at her.
+Next he saw a girl in a corner looking very scared and there were hundreds of strange things (maybe ghosts) looking at her.
 
-snow
+Then he saw a kid on a pirate ship drowning while looking at the sky.
 
-orion
+A boy just standing there, thinking.
 
-heather
+Next a little girl holding a calendar in a dark room.
 
-castor 
+Then he saw a kid running around and trying to catch a butterfly.
 
 meru
 
