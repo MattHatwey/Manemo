@@ -341,11 +341,11 @@ A boy just standing there, thinking.
 
 Next a little girl holding a calendar in a dark room.
 
-Then he saw a kid running around and trying to catch a butterfly.
+Then he saw a boy running around, aimlessly.
 
-meru
+Then a kid was sadly staring at another girl.
 
-mist 
+Next was a girl hiding, looking scared as a boy was looking for her.
 
 mira
 
