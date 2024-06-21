@@ -76,6 +76,17 @@ Heles was wearing a white t-shirt with light blue short jeans. Now Heles was a b
 
 They talked to the teacher (The principal was Matt, so they didn't want the fun to end so quickly) about being the future-students, and their parents were working that day, so they would come see by them selves. The teacher actually believed them.
 
+Now that they could start the tour, they decided to see if Bubble and Sirius wanted to join their game. 
+
+Bubble and Sirius went to the drinking fountain near where Heles and Reverse were. Reverse and Heles came to them. "Hi, we are the future-students of this school!". Then, Heles whispered "Hi Bubble and Sirius! We are disguised as other Manemos!". "Hello, Nice to meet you!" said Sirius, while Bubble said "Ok, Heles, tell me how to get out of class!" said Bubble. 
+
+Heles started explaining, but then suddendly, Sirius said, "I have a great idea!" and purposely fell on the ground, and Bubble copied. 
+
+Azuki (Heles) went to the teacher to explain that Sirius and Bubble tripped and fell. Bubble and Sirius pretended it was painful, and so the school nurse came again to see what happened. The school nurse told them to rest in the beds in the school nurse's room. Sirius and Bubble were upset that now the school nurse was watching. 
+
+Suddendly, the school nurse got up and told Sirius and Bubble "Are you okay if I leave you two resting here? A Manemo got severely injured a minute ago and I have to help.". Sirius and Bubble smiled with joy "Yes, we're okay!". Now Sirius and Bubble can be free.
+
+
 pentama 
 
 summer
