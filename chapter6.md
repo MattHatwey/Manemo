@@ -75,3 +75,15 @@ Once Heles and Reverse were done dying their hair with washable markers, and bru
 Heles was wearing a white t-shirt with light blue short jeans. Now Heles was a boy, and her hair was now light brown, almost blond. Reverse's hair was now brown at the top and there was a brown to purple-red gradeient. She wore a blue ribbon.
 
 They talked to the teacher (The principal was Matt, so they didn't want the fun to end so quickly) about being the future-students, and their parents were working that day, so they would come see by them selves. The teacher actually believed them.
+
+pentama 
+
+summer
+
+japan
+
+summer camp
+
+sleepover
+
+
