@@ -86,7 +86,7 @@ Azuki (Heles) went to the teacher to explain that Sirius and Bubble tripped and 
 
 Suddendly, the school nurse got up and told Sirius and Bubble "Are you okay if I leave you two resting here? A Manemo got severely injured a minute ago and I have to help.". Sirius and Bubble smiled with joy "Yes, we're okay!". Now Sirius and Bubble can be free.
 
-Now 
+Sirius, Bubble, Heles, and Reverse were now free and they could all play, so Bubble and Sirius made drawings while　Reverse and Heles went back to their rooms to also draw.
 
 
 pentama 
