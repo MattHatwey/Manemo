@@ -88,6 +88,11 @@ Suddendly, the school nurse got up and told Sirius and Bubble "Are you okay if I
 
 Sirius, Bubble, Heles, and Reverse were now free and they could all play, so Bubble and Sirius made drawings while　Reverse and Heles went back to their rooms to also draw.
 
+The school year is finally over. Heles and Reverse decided to go to 
+
+シロの世界 heaven
+
+クロの世界 dark world
 
 pentama 
 
@@ -98,5 +103,11 @@ japan
 summer camp
 
 sleepover
+
+fourth of july
+
+hanabi
+
+peindarudo
 
 
