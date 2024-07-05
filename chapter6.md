@@ -88,9 +88,92 @@ Suddendly, the school nurse got up and told Sirius and Bubble "Are you okay if I
 
 Sirius, Bubble, Heles, and Reverse were now free and they could all play, so Bubble and Sirius made drawings while　Reverse and Heles went back to their rooms to also draw.
 
-The school year is finally over. Heles and Reverse decided to go to 
+The school year is finally over. Heles and Reverse decided to go to the park to play.
 
-シロの世界 heaven
+"I'm bored." said Heles, after playing in the park for 1 hour. "Me too." said Reverse. 
+
+Heles started spinning around as fast as she could. Heles bumped into Reverse, and Reverse started spinning. "I. am..dizzy...!" said Reverse. "..M.e...too!" said Heles. "I.can't..sto.p!" said Heles. "Me..too.!.." said Reverse. 1 hour later, their head became blank. "I don't feel dizzy!" said Reverse and Heles. "Let's try to spin as fast as we can!" said Heles.
+
+"Where is this...?"
+
+"Here is...."
+
+"....?" 
+
+Heles and Reverse woke up to see a white landscape. 
+
+"WOW!" said Reverse and Heles.
+
+"It's cold here." said Reverse. "Yeah. I see a hollow tree over there. Let's go!" said Heles. The inside of the tree was quite warm. "I'm getting some leaves to block the entrance." said Reverse. "Okay!" said Heles.
+
+"...HELES!!!" said Reverse. "What?" said Heles. Heles walked outside of the log. They saw the sky was getting darker, and as it got darker, they saw a faint light glowing.
+
+"...Wow..." said Heles. "...Wait!!" said Reverse. Heles had started running toward the lights.
+
+"..." said Heles. 
+
+"..." said Reverse.
+
+They were in a small town. Manemos were walking around, placing lanterns. One tall Manemo walked towards us.
+
+"My name is Shirottori-. It is getting cold outside, so please come in my house."
+
+"...Thank you, but..." said Reverse. "But there is a little Manemo outside!" said Heles. "Really? I'll go check on them." said Shirottori-.
+
+"HELLO!!!!!!!! YOU'RE HELES AND REVERSE RIGHT!?" said the small Manemo. It was the same little Manemo that was outside. Shirottori- was chasing after her.
+
+"Who are you?" asked Heles and Reverse. 
+
+"I'm Flame!" said the little Manemo.
+
+"Wait... Are you the from the Crystal tower?!" asked Shirottori-.
+
+"Yeah!" said Reverse and Heles.
+
+"Why not come to the Crystal tower?" asked Heles.
+
+"Yes!" said Shirottori- and Flame. "But how?" said Shirottori-.
+
+"Spin around!!!" said Heles.
+
+Reverse and Heles started spinning around. This time it wasn't as chaotic. Flame also started spinning, and bumped into Shirottori-. 
+
+"...Are.you..di..zzy...?" said Heles. 
+
+"...K..ind.of!" said Reverse.
+
+"Me...to..o.." said Shirottori- and Flame.
+
+This time it was faster for Heles and Reverse to make their head blank.
+
+"Not dizzy anymore!" said Heles and Reverse.
+
+"I don't feel dizzy either." said Shirottori-.
+
+"Me either!" said Flame.
+
+Soon they arrived back in the dry plain where they started spinning. It had been 5 hours now, so they bought some food and came back home. 
+
+"I'm Flame!" said Flame.
+
+"Welcome to the Crystal tower!" said Sansei, Matt, and Mist, who was helping Sansei with making dinner.
+
+Shirottori- also came in. He had greeted the kids first. Everyone was interested in Shirottori-.
+
+"Hello. I am Shirottori- from the Snowy Village. Thank you for rescuing us." said Shirottori-.
+
+"What do you mean rescue?" said Flame. Shirottori- whispered something to Flame. Flame smiled but at the same time looked like she was crying.
+
+That night Flame talked to Kacchan.
+
+"...That's sad to hear. It's okay though. I know you can escape again!" said Kacchan.
+
+"I don't wanna go back! This is my home." said Flame.
+
+"It's okay." said Snow.
+
+"..." said Flame.
+
 
 クロの世界 dark world
 
