@@ -175,6 +175,68 @@ That night Flame talked to Kacchan.
 "..." said Flame.
 
 
+"....." 
+
+"...Snow..?" said Calipi.
+
+"!..." said Snow.
+
+Calipi looked at Snow. She was good at looking at things in the dark.
+
+Snow was writing something about a ship and drowning and Shirottori- maybe having a connection, but the Shirottori- part was crossed out.
+
+"I thought your other lives were useless." said Calipi.
+
+Calipi stared at Snow.
+
+She saw a pirate ship in Snow's eyes.
+
+"I have a secret." said Snow.
+
+"Yes?" said Calipi.
+
+"In my past life, I was on a pirate ship, and that pirate Manemo you saw saved my life. He would take care of me all the time. He died, and I also drowned because I couldn't live without him. I can't remember his name, and I want to find him." said Snow.
+
+"But he died, right?" said Calipi.
+
+"Yeah, but just like me, he will reborn as a new Manemo, or go to heaven..." said Snow, starting to erase the cross above where he wrote about Shirottori-.
+
+"Snow, only you can remember your past lives." said Calipi.
+
+"Maybe-" Calipi cut herself off.
+
+"?" said Snow.
+
+Calipi smiled. 
+
+"You'll understand soon. You already do." said Calipi.
+
+After that night, he would think of how nice the pirate was, and how similar he was to Shirottori-.
+
+"I have to go to heaven." said Flame, again, to Matt and Sansei.
+
+"I was supposed to be in heaven, which is why Shirottori- whispered something to me a few weeks back." said Flame.
+
+Matt and Sansei were shocked.
+
+"Even Shirottori- went back." said Flame.
+
+"Thank you for the memories." said Flame.
+
+Flame ran towards the door and before she opened it she dissapeared.
+
+Soon after, a boy was found by Snow. His name was Obsidian, and he told us he didn't know who he was. Kacchan saw Obsidian and thought he was very cute. Kacchan liked Flame, and so did Snow. They soon realized what happpened to her. Then everyone in the Crystal tower knew who Obsidian was. Obsidian was Flame's spirit.
+
+Obsidian liked Kacchan too. Kacchan and Obsidian decided to marry each other.
+
+Obsidian could feel everything Flame felt. Sometimes he felt like he was in a different universe even though he was next to someone. Sometimes you could see Obsidian crying in pain. Whenever someone saw him crying, he would laugh, although it wasn't a happy laugh. It was a sad laugh.
+
+One day, Kacchan saw Obsidian crying. Instead of fake laughing, he just continued crying. Soon Kacchan noticed that Obsidian was crying with joy. Flame was behind him.
+
+Flame ran toward Kacchan. Obsidian also hugged Kacchan. Obsidian had finally his own thoughts. Until now, it was just Flame's mind. Flame apologized but Obsidian didn't mind.
+
+Obsidian still loved Kacchan the same, even after he has his own thoughts.
+
 クロの世界 dark world
 
 pentama 
