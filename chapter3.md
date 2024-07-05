@@ -90,40 +90,6 @@ After Matt and the others arrived home, Sansei and Matt decided that they were g
 
 For the next 12 years, Matt and Sansei made many children. Kacchan was already 13, and Matt and Sansei found a few lost kids, and all of them wanted to live in the Crystal tower. 
 
-"Aves?" said a Manemo who was on her way to the grocery.
-
-Aves was waving and saying hi to Manemos as usual. This was the second time somebody came up to him.
-
-"Are you...?" said Aves. Suddenly the Manemo smiled. "Yes, I'm back." said the Manemo.
-
-"We would like to do an experiment on you, is that okay?" said the Manemo.
-
-"My name is Leaf." said the Manemo.
-
-"If this experiment works, we will re-create the Mird species. Back when Legendaria was alive, Mirds existed. Some newspapers say that Mirds helped Manemo Land from starting war. The first sign of Mirds dissapearing was found when Old Kingdarudo and Old Queendarudo were dropped in the volcano. Sadly, Mirds became endangered. Mirds went extinct after the first war, but a pair of red and blue Mirds went over to that island where you were born. Then they ran out of food. Then they died. So now, it is only you." said Leaf.  
-
-"I will do it!" said Aves.
-
-"I'm bored..." said everyone in the Crystal tower. "How about we seperate into groups to have fun?" asked Bubble, Heles, Crystal, Meru, and Matt. "Okay." said everyone else.
-
-"Looks like we're in a group." said Haru. "I've never really talked to you, or anyone else, but especially you." said Kiwi. "You just talked." said Haru. "I did." said Kiwi. These two are very quiet and boring. Even YOU are getting bored because of these two. "Why do you talk way more in one sentence than when you talk to me?" asked Haru. "I don't know, but I think the same to you." said Kiwi. "To be honest, you're correct." said Haru. "Should we get a drink? Bubble Lake Boba is open." said Kiwi. "Yeah." said Haru. They got a drink. 
-
-"What flavor did you get?" asked Kiwi and Haru at the same time. Kiwi smiled, Haru smiled, then laughed. So did Kiwi. "I got Melon Kiwi Soda Float." said Kiwi. "I got Haru Fruit Shake." said Haru. They laughed. "Do you love your drink?" said Kiwi. "Yeah." said Haru. "Me too." said Kiwi. Let's go over there next!" said Kiwi and Haru, expecting to say the same location. And they did. "You're smiling!" said Kiwi. "You too!" said Haru.
-
-That crepe was good!" said Kiwi. "Yeah. That ice cream was good too!" said Haru. They went to playgrounds, pools, arcades, food, and more.
-
-"I want to tell you something." said Haru.
-
-"I also want to tell you something." said Kiwi.
-
-"3 2 1" said Haru and Kiwi.
-
-"Thank you!" said Haru and Kiwi.
-
-After playing for 6 hours, they went back to the Crystal tower with game prizes, candy in their pockets, stuffed toys, and more. Everyone looked surprised.
-
-Mirds have been created.
-
 Calipi usually was in the Crystal tower. She didn't like attention from Manemos she didn't know. The only times she would go out was when she needed to buy food from the grocery. 14
 
 Kacchan seemed to have a completly different life hidden from her family. Kacchan's actual name was Pink, and she was one of the popular idols of Manemo Land. 'Peekaboo IdoLz' was the name of the group she was in. It was a group of Lemon, who is a peekaboo(peekaboo is a type of bird),Mirage, and Pink. Mirage and Kacchan(Pink) were friends since elementary school. Pink had no friends. But she loved to dance. One day, a girl named Mirage sat next to her. Mirage was new at the school. They loved to dance. Pink brought a idol uniform to school, and so did Mirage. They would escape from school by climbing the fence(keep in mind that these two were still 7). They would go to big concerts, and would dance. They were always told that they weren't allowed inside, but they didn't care. Soon many Mirage and Pink had many fans. And 7 years later, they named their group 'Peekaboo IdoLz' because a peekaboo named Lemon joined and named the group. Everyone immediatly got used to Lemon in Pink and Mirage's live concert. A lot of Manemos were fans of Lemon, too. Kacchan also loves flame and Obsidian, and married Obsidian. 14
@@ -160,7 +126,7 @@ Flame once lived in a beatiful white world, along with a Manemo named Shirottori
 
 <Please Read Matt's Family Now>
 
-One day in 2035, Rainflower made her own breakfast and ate by herself. 
+One day, Rainflower made her own breakfast and ate by herself. 
 
 "What happened?" asked Matt and the others.
 
