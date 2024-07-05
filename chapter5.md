@@ -126,7 +126,7 @@ Bubble smiled. She looked at Sirius and laughed.
 
 Sirius smiled. She looked at Bubble and laughed.
 
-Aves looked at the beautiful view as the buildings and houses repaired themselves. He smiled, knowing that Leaf would be there tomorrow to greet him.
+Aves looked at the beautiful view as the buildings and houses repaired themselves. He smiled.
 
 Esper looked around. He wished his life was better. He wanted his heart to feel fixed, just like the towns and cities. Crystal hugged him and said "I'm happy that I was born with you! I love you!" Esper cried, then smiled.
 
@@ -142,7 +142,13 @@ Haru ran toward the airport. Kiwi ran toward the dock. They couldn't find each o
 
 Kacchan, Obsidian, and Flame rushed to the Crystal Tower. Bubble and Sirius saw them, and quickly told Mist and Rigel. Mist ran toward the Crystal tower with them. Rigel ran towards Castor and Mira. They ran to the Crystal tower. Soon, Meru was in the race too. Heather ran after Haru.
 
-Crystal smiled at Esper. Esper also smiled. Aves waved at them, then ran to Leaf in the village, waiting for him. Heles watched as Everyone came toward Crystal tower. Orion and Vega walked slowly. Vega smiled. Orion smiled. They blushed.
+Crystal smiled at Esper. Esper also smiled. Aves waved at them. 
+
+Just as he was waving, somebody called his name. "Aves?" said the Manemo. 
+
+Aves stared. It was the Manemo who ran a test on him. "Hello! Did the experiment work?" asked Aves. "Yes! Thank you for helping me. My name is Leaf!" said Leaf. Aves blushed. Leaf was very polite and kind. Aves enjoyed chatting with her. She smiled.
+
+Heles watched as Everyone came toward Crystal tower. Orion and Vega walked slowly. Vega smiled. Orion smiled. They blushed.
 
 Every Good Manemo went stood infront the Crystal Tower. Nobody went in.
 
