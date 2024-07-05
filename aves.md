@@ -22,6 +22,10 @@ Suddenly I was captured back into the cell.
 
 "Good." said the Manemo.
 
+"May I please do a tiny sample on your species?" said the Manemo.
+
+"Yes." said I.
+
 "You may be free now." said the Manemo.
 
 "Thank you." said I.
