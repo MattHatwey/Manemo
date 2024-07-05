@@ -237,6 +237,41 @@ Flame ran toward Kacchan. Obsidian also hugged Kacchan. Obsidian had finally his
 
 Obsidian still loved Kacchan the same, even after he has his own thoughts.
 
+
+"Aves?" said a Manemo who was on her way to the grocery.
+
+Aves was waving and saying hi to Manemos as usual. This was the second time somebody came up to him.
+
+"Are you...?" said Aves. Suddenly the Manemo smiled. "Yes, I'm back." said the Manemo.
+
+"We would like to do an experiment on you, is that okay?" said the Manemo.
+
+"My name is Leaf." said the Manemo.
+
+"If this experiment works, we will re-create the Mird species. Back when Legendaria was alive, Mirds existed. Some newspapers say that Mirds helped Manemo Land from starting war. The first sign of Mirds dissapearing was found when Old Kingdarudo and Old Queendarudo were dropped in the volcano. Sadly, Mirds became endangered. Mirds went extinct after the first war, but a pair of red and blue Mirds went over to that island where you were born. Then they ran out of food. Then they died. So now, it is only you." said Leaf.  
+
+"I will do it!" said Aves.
+
+"I'm bored..." said everyone in the Crystal tower. "How about we seperate into groups to have fun?" asked Bubble, Heles, Crystal, Meru, and Matt. "Okay." said everyone else.
+
+"Looks like we're in a group." said Haru. "I've never really talked to you, or anyone else, but especially you." said Kiwi. "You just talked." said Haru. "I did." said Kiwi. These two are very quiet and boring. Even YOU are getting bored because of these two. "Why do you talk way more in one sentence than when you talk to me?" asked Haru. "I don't know, but I think the same to you." said Kiwi. "To be honest, you're correct." said Haru. "Should we get a drink? Bubble Lake Boba is open." said Kiwi. "Yeah." said Haru. They got a drink. 
+
+"What flavor did you get?" asked Kiwi and Haru at the same time. Kiwi smiled, Haru smiled, then laughed. So did Kiwi. "I got Melon Kiwi Soda Float." said Kiwi. "I got Haru Fruit Shake." said Haru. They laughed. "Do you love your drink?" said Kiwi. "Yeah." said Haru. "Me too." said Kiwi. Let's go over there next!" said Kiwi and Haru, expecting to say the same location. And they did. "You're smiling!" said Kiwi. "You too!" said Haru.
+
+That crepe was good!" said Kiwi. "Yeah. That ice cream was good too!" said Haru. They went to playgrounds, pools, arcades, food, and more.
+
+"I want to tell you something." said Haru.
+
+"I also want to tell you something." said Kiwi.
+
+"3 2 1" said Haru and Kiwi.
+
+"Thank you!" said Haru and Kiwi.
+
+After playing for 6 hours, they went back to the Crystal tower with game prizes, candy in their pockets, stuffed toys, and more. Everyone looked surprised.
+
+Mirds have been created.
+
 クロの世界 dark world
 
 pentama 
