@@ -1,9 +1,15 @@
 "Arabelle! A letter has arrived!" Pattern shouted excitedly. "Thanks Pattern!!" said Arabelle. "Of course!" said Pattern.
 After Legendaria dissapeared, everyone lived peacefully. Pattern and Arabelle were friends since long ago. Arabelle came from a different planet named Kyuuseigoku (9 planets). When Arabelle was 12, Kyuuseigoku had a war, and the kids who lived in Kyuuseigoku were forced to leave the planet and were sent to Uranus. Arabelle was one of those kids. 
 
+One nice Spring.
+
 One day, when Pattern was gathering fruits from a forest, she met Arabelle. "Hello! I landed on this place just now. Would you please help me?" Asked Arabelle. "I will help you! You can live in my house, nobody lives there besides me!" Said Pattern. Pattern's parents passed away long ago. Arabelle thanked Pattern, and from then, they would go to school together, sleep together, and do everything together. That is how they became best friends.
 
+8 years later.
+
 Pattern is crying. Arabelle and Pattern are now adults, so they lived seperately. Pattern became lonely again, so she stared working for a buisness to deliver letters. It was a very hard job, but Pattern was happy to meet Arabelle everyday.
+
+
 
 "Help!" "Arabelle??" "I'm so scared!!!" Where are you?" Arabelle woke up in her half broken house. "Pattern!" said Arabelle. "Are you okay Arabelle?" asked Pattern. "Yes, I'm okay!" "Hehe, good!" "Should we run away towards the forest?" "Good idea!" "Let's go!" Pattern and Arabelle made a house in the forest. When they finished building the house, it was already evening. "Arabelle, I'm going to sleep now." said Pattern, sleepily. "Okay. Good night Pattern!" said Arabelle, also sleepily. They both slept and felt safe.　
 
