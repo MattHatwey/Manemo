@@ -1,0 +1,6 @@
+exclude: [vendor]
+kramdown:
+  input: GFM
+plugins:
+  - jekyll-optional-front-matter
+  - jekyll-relative-links
