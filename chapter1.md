@@ -265,7 +265,7 @@ Matt was thinking for so long that even Sansei and Ichigo's conversation ended.
   Suddenly, Matt, Sansei, Hatwey, and Honest saw a Manemo.
 “Who are you?” said the Manemo.
 “I’m Matt, this is Sansei, Honest, and Hatwey.
-“I’m Rainflower. I was born here. I’m 10 years old.” said Rainflower.
+“I’m Rainflower. I was born here. I’m 8 years old.” said Rainflower.
 
   Matt, Sansei, Honest, and Hatwey had been adventuring for 1 month.
 “We should go back to Crystal Tower. It’s been a long time since we were there and I think it’ll take more than a week to get back home.” said Sansei and Hatwey.
