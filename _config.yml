@@ -4,3 +4,5 @@ kramdown:
 plugins:
   - jekyll-optional-front-matter
   - jekyll-relative-links
+include:
+  - README.md
