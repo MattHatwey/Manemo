@@ -88,8 +88,6 @@ Suddendly, the school nurse got up and told Sirius and Bubble "Are you okay if I
 
 Sirius, Bubble, Heles, and Reverse were now free and they could all play, so Bubble and Sirius made drawings while　Reverse and Heles went back to their rooms to also draw.
 
-The school year is finally over. Heles and Reverse decided to go to the park to play.
-
 "I have to go to heaven." said Flame, again, to Matt and Sansei.
 
 "I was supposed to be in heaven, which is why Shirottori- whispered something to me a few weeks back." said Flame.
