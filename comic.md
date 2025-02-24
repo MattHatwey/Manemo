@@ -12,6 +12,8 @@ Meru
 
 (Then Meru): Focus...
 
+BANG!!!
+
 1: <- Creator
 
 2: Creator: Ah!
