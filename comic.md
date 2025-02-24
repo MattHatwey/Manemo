@@ -1,4 +1,4 @@
 Welcome to the Official Manemo Comic Page! I will be posting comics here and there, mostly in Japanese. I will be adding subtitles just in case, so don't worry! :)
 
-(http://![meru comic](https://github.com/user-attachments/assets/786fbdc2-6206-4111-ae1f-db5bee1d8eaa)
+//![meru comic](https://github.com/user-attachments/assets/786fbdc2-6206-4111-ae1f-db5bee1d8eaa)
 
